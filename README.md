@@ -66,7 +66,7 @@ ___
 
 - **SMALL PLAYER**: Ezekiel Elliot (5.9) 
 
-> I **FOUND** this week to be quite... **TITAN**ic from Zach. Thankfully his performance last year will give him some **ARMOR** to build upon win after win. Antonio Gibson proved to be very **BEAST**ly and the **COLOSSUS** **ATTACK**s from Travis Kelce seem to be the start of something great. As long as none of his players get **CART**ed off this year, Zach will be able to continue to enjoy the **FEMALE**s he is going on dates with and giving **JAW** soreness night after night. 
+> I **FOUND** this week to be quite... **TITAN**ic from Zach. Thankfully his performance last year will give him some **ARMOR** to build upon win after win. Antonio Gibson proved to be very **BEAST**ly and the **COLOSSUS** **ATTACK**s from Travis Kelce seem to be the start of something great. As long as none of his players get **CART**ed off this year, Zach will be able to continue to enjoy the **FEMALE**s he is going on dates with and giving **JAW** soreness to night after night. 
 
 ___
 
