@@ -80,7 +80,7 @@ ___
 
 ___
 
-### 8. Who's Peat Weba? **[0-1]**
+### 7. Who's Peat Weba? **[0-1]**
 
 - **BIG PLAYER**: Gabe Davis (18.8)
 
