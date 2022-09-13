@@ -62,9 +62,9 @@ ___
 
 ### 5. The Junkyard Salami Branches **[1-0]**
 
-- **BIG PLAYER**: Cooper Kupp (31.8)
+- **BIG PLAYER**: Antonio Gibson (20.0)
 
-- **SMALL PLAYER**: Ezekiel Elliot (5.9) 
+- **SMALL PLAYER**: Alvin Kamara (7.6)
 
 > I **FOUND** this week to be quite... **TITAN**ic from Zach. Thankfully his performance last year will give him some **ARMOR** to build upon win after win. Antonio Gibson proved to be very **BEAST**ly and the **COLOSSUS** **ATTACK**s from Travis Kelce seem to be the start of something great. As long as none of his players get **CART**ed off this year, Zach will be able to continue to enjoy the **FEMALE**s he is going on dates with and giving **JAW** soreness to night after night. 
 
