@@ -46,7 +46,7 @@ ___
 
 - **SMALL PLAYER**: Christian McCaffrey (15.7)
 
-> It was always Javonte Williams. 11 fucking catches he might as well be McCaffery's father this week. Pretty lucky win this week vs. my squad, but Keenan Allen got hurt and Dean's bench is pretty fucking dried up so I dropped him down a spot this week. Also in case you guys didn't see from the 57 news articles that were posted 15 seconds after it happened, Harrison Butker stubbed his toe during the game. 
+> It was always Javonte Williams. 11 fucking catches he might as well be McCaffery's father this week. Pretty lucky win this week vs. my squad, but Keenan Allen got hurt and Dean's bench is pretty fucking dried up so I dropped him down a spot this week from the point totals. Also in case you guys didn't see from the 57 news articles that were posted 15 seconds after it happened, Harrison Butker stubbed his toe during the game. 
 
 ___
 
