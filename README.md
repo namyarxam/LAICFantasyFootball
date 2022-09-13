@@ -138,3 +138,7 @@ ___
 
 > Brandon came in last place (by alot), lost in his college league, and lost week 1 of his survival pool (he picked the Colts). At least you'll be able to focus on your new job considering it seems like there wont be any real distractions from the world of sports for the next few months. I really can't think of anything good to say about your team because it was just that bad, but I hope you like your new team name! 
 
+___
+
+That's all for this week, thanks for reading! Next weeks edition will be brought to you by the one and only Alexa Zicca AKA Zesus himself. Stay tuned!
+
