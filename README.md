@@ -1,6 +1,7 @@
 ## **Week 2 LAIC Rankings**
 
 - Week 2 rankings courtesy of Zicca. Each weeks rankings will be totally different, I don't tell anyone what to or how to format their rankings. 
+- Daniel has been paid $10 for being the weekly top scorer. 
 
 ___
 ## **Week 2 Rename**:
