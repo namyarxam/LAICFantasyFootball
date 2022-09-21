@@ -18,7 +18,7 @@ ____
 most points last week at 171. Daniel has a solid team all around and will be dangerous once
 Godwin comes back. However, former top junkyard dog Derrick Henry is looking tired these days
 and may need a tug to wake him up...
-___
+
 
 ### 2. Hardman In My Butker [2-0]
 
@@ -26,14 +26,14 @@ ___
 led by stallion Josh Allen. Anchored by co-stallion C-Mac, this team has a lot of star power with
 the emergence of Waddle but doesn’t have great WR dept thereafter. Nonetheless, I’m liking
 what I see and am giving this team a hard buy.
-___
+
 
 ### 3. Stiff For Kliff [1-1]
 
 > Both Justin Jefferson and Saquon Barkley failed to repeat their strong performances in the L against the Salami Branches. However, at least Kliff Kingsbury picked up
 the W last week. Enrique’s team definitely has potential, but it’s too early to determine whether
 it sinks or floats.
-___
+
 
 ### 4. The Booch [2-0]
 
@@ -41,42 +41,42 @@ ___
 the haters with a 2-0 start. St. Brown has picked up where he left off late last year, looking like a
 true WR1. However, while Jake’s team is loaded at WR, the team is weak at RB. For a team that
 is usually full of RBs, this makes for an interesting change in strategy this year.
-___
+
 
 ### 5. The Junkyard Salami Branches [2-0]
 
 > Not sure this fuck boy even knows what week we’re on,
 but he picked up another W. Expect the bare minimum of work from Zach, but more wins led by
 junkyard dog Lamar Jackson.
-___
+
 
 ### 6. Punta Gorda Floridiots [1-1]
 
 > Despite the L last week, Bruce’s team is jacked on paper and has
 tons of potential. Mahomes is proving he can still dominate without Tyreke Hill, and Kupp is
 continuing to catch dimes from Stafford.
-___
+
 
 ### 7. Who’s Peat Weba? [1-1]
 
 > Jared’s team looks like a good .500 team. Solids RBs, great TE, but
 lacks any high ceiling WR. Maybe his team name should be changed to Who’s Carson Wentz,
 since the league still doesn’t know…
-___
+
 
 ### 8. JKauff In Ya Mauf [1-1]
 
 > Desperate for recognition these days, the former tennis star picked up
 the W last week against a poor performance by The Commissioner. Despite what he wants you
 to believe, Jordan’s team is full of inconsistent players, making this one a tough buy.
-___
+
 
 ### 9. Team Fish [1-1]
 
 > This team may be a joke, just like the financial advisor turned serial
 entrepreneur turned sex therapist it’s named after. Tom Brady looks washed up and should’ve
 stayed retired.
-___
+
 
 ### 10. I Miss Rachel Farmer [0-2]
 
@@ -84,7 +84,7 @@ ___
 too many drugs last week and passed out to an 0-2 start despite scoring 146 points in a slim loss
 against The Booch. Perhaps B and his former lover Rachel Farmer could use a slice of Brie
 “Bestario” Cheddar to give him a boost next week against Leddy Sr.
-___
+
 
 ### 11. Skittles Up My White Ba-ss [0-2]
 
@@ -92,7 +92,7 @@ ___
 to start the season winless, the talent is definitely there. Eric is large and in charge at RB, but the
 team may need a new QB as Stafford looks washed up with that potentially bad elbow. Shout
 out for his great pick of Michael Thomas, who looks fresh catching passes from Bill Cosby.
-___
+
 
 ### 12. Mckissic my BB chu.bbInYaMauff [0-2]
 
