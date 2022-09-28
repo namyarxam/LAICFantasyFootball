@@ -1,3 +1,114 @@
+
+## **Week 2 LAIC Rankings**
+
+- Week 2 rankings courtesy of Leddy! Enjoy!
+- Daniel has been paid $10 for being the weekly top scorer. 
+
+___
+## **Week 2 Rename**:
+
+Jkauff's team name "**_Jkauff in Ya Mauf_**" has been renamed to "**_Emotional Participant_**".
+
+Brandon's team is now elgible to be re-named back if he chooses to do so. 
+
+____
+
+### 1. Big Brown Chu.bb Hurts? [2-1]
+
+> This big brown man has a big fat cock. Leading the league in points by a wide margin
+after 3 weeks, things are looking very erect. I would say the sky is the limit, but there is
+no limit on the growth of this man’s cock. Every week it just keeps and growing and
+growing. I want you to win every week because getting these hilarious write-ups on new
+team namings is money well spent. Emotional Participant? What the fuck is that name?
+No idea, but I fucking love it! Please keep winning, I beg you.
+
+
+### 2. The Junkyard Salami Branches [3-0]
+
+> Following up the Big Brown fat cocks are the Salami cocks. Just like this thick piece of
+meat’s Johnny Tsunami hair, this cockman’s branches are growing wildly. Growth! Thick!
+Thick Cock! Look at those ceps! Rock hard calves!
+
+![Zach]([https://octodex.github.com/images/bannekat.png](https://i.imgur.com/mZdB7Gw.png)
+
+
+### 3. Stiff For Kliff [1-1]
+
+> Both Justin Jefferson and Saquon Barkley failed to repeat their strong performances in the L against the Salami Branches. However, at least Kliff Kingsbury picked up
+the W last week. Enrique’s team definitely has potential, but it’s too early to determine whether
+it sinks or floats.
+
+
+### 4. The Booch [2-0]
+
+> After a tight win last week against Team Farmer, Alessandro Bucci has muted
+the haters with a 2-0 start. St. Brown has picked up where he left off late last year, looking like a
+true WR1. However, while Jake’s team is loaded at WR, the team is weak at RB. For a team that
+is usually full of RBs, this makes for an interesting change in strategy this year.
+
+
+### 5. The Junkyard Salami Branches [2-0]
+
+> Not sure this fuck boy even knows what week we’re on,
+but he picked up another W. Expect the bare minimum of work from Zach, but more wins led by
+junkyard dog Lamar Jackson.
+
+
+### 6. Punta Gorda Floridiots [1-1]
+
+> Despite the L last week, Bruce’s team is jacked on paper and has
+tons of potential. Mahomes is proving he can still dominate without Tyreke Hill, and Kupp is
+continuing to catch dimes from Stafford.
+
+
+### 7. Who’s Peat Weba? [1-1]
+
+> Jared’s team looks like a good .500 team. Solids RBs, great TE, but
+lacks any high ceiling WR. Maybe his team name should be changed to Who’s Carson Wentz,
+since the league still doesn’t know…
+
+
+### 8. JKauff In Ya Mauf [1-1]
+
+> Desperate for recognition these days, the former tennis star picked up
+the W last week against a poor performance by The Commissioner. Despite what he wants you
+to believe, Jordan’s team is full of inconsistent players, making this one a tough buy.
+
+
+### 9. Team Fish [1-1]
+
+> This team may be a joke, just like the financial advisor turned serial
+entrepreneur turned sex therapist it’s named after. Tom Brady looks washed up and should’ve
+stayed retired.
+
+
+### 10. I Miss Rachel Farmer [0-2]
+
+> B’s team has solid talent on paper. But like it’s manager, it took
+too many drugs last week and passed out to an 0-2 start despite scoring 146 points in a slim loss
+against The Booch. Perhaps B and his former lover Rachel Farmer could use a slice of Brie
+“Bestario” Cheddar to give him a boost next week against Leddy Sr.
+
+
+### 11. Skittles Up My White Ba-ss [0-2]
+
+> While Leddy Sr. and Team Skittles are not looking too good
+to start the season winless, the talent is definitely there. Eric is large and in charge at RB, but the
+team may need a new QB as Stafford looks washed up with that potentially bad elbow. Shout
+out for his great pick of Michael Thomas, who looks fresh catching passes from Bill Cosby.
+
+
+### 12. Mckissic my BB chu.bbInYaMauff [0-2]
+
+> New name, same problems. The Commissioner may
+have the best RB in the game, but his WRs are trash especially with Evans out this week.
+However, a W for Max is in the cards going against the lowly Team Fish this week.
+
+___
+___
+___
+
+
 ## **Week 2 LAIC Rankings**
 
 - Week 2 rankings courtesy of Zicca. Each weeks rankings will be totally different, I don't tell anyone what to or how to format their rankings. 
