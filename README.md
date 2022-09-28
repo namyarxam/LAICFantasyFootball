@@ -9,7 +9,7 @@ ___
 
 Jkauff's team name "**_Jkauff in Ya Mauf_**" has been renamed to "**_Emotional Participant_**".
 
-Brandon's team is now elgible to be re-named back if he chooses to do so. 
+Brandon's team is now elgible to be re-named back. 
 
 ____
 
@@ -32,77 +32,78 @@ Thick Cock! Look at those ceps! Rock hard calves!
 ![Zach](https://i.imgur.com/mZdB7Gw.png)
 
 
-### 3. Stiff For Kliff [1-1]
+### 3. Stiff For Kliff [2-1]
 
-> Both Justin Jefferson and Saquon Barkley failed to repeat their strong performances in the L against the Salami Branches. However, at least Kliff Kingsbury picked up
-the W last week. Enrique’s team definitely has potential, but it’s too early to determine whether
-it sinks or floats.
-
-
-### 4. The Booch [2-0]
-
-> After a tight win last week against Team Farmer, Alessandro Bucci has muted
-the haters with a 2-0 start. St. Brown has picked up where he left off late last year, looking like a
-true WR1. However, while Jake’s team is loaded at WR, the team is weak at RB. For a team that
-is usually full of RBs, this makes for an interesting change in strategy this year.
+> Following up on the first 2 cocks is another cock. Just have to name your team after a
+cock and you’ll be good.
 
 
-### 5. The Junkyard Salami Branches [2-0]
+### 4. A Hardman in My Butker [2-1]
 
-> Not sure this fuck boy even knows what week we’re on,
-but he picked up another W. Expect the bare minimum of work from Zach, but more wins led by
-junkyard dog Lamar Jackson.
-
-
-### 6. Punta Gorda Floridiots [1-1]
-
-> Despite the L last week, Bruce’s team is jacked on paper and has
-tons of potential. Mahomes is proving he can still dominate without Tyreke Hill, and Kupp is
-continuing to catch dimes from Stafford.
+> Heeeeemmm! Aaaaaaat! Aiiiiiiyyyuuuttt! Siirrrr! Ohhh Thinkington! Thickle! Flickin the
+Beano!
 
 
-### 7. Who’s Peat Weba? [1-1]
+### 5. The Booch [2-1]
 
-> Jared’s team looks like a good .500 team. Solids RBs, great TE, but
-lacks any high ceiling WR. Maybe his team name should be changed to Who’s Carson Wentz,
-since the league still doesn’t know…
+> Kid’s got ‘ceps
 
 
-### 8. JKauff In Ya Mauf [1-1]
+### 6. Punta Gorda Floridiots [2-1]
 
-> Desperate for recognition these days, the former tennis star picked up
-the W last week against a poor performance by The Commissioner. Despite what he wants you
-to believe, Jordan’s team is full of inconsistent players, making this one a tough buy.
+> Looking good Bruce! Keep up the good work!
 
 
-### 9. Team Fish [1-1]
+### 7. Team Fish [1-2]
 
-> This team may be a joke, just like the financial advisor turned serial
-entrepreneur turned sex therapist it’s named after. Tom Brady looks washed up and should’ve
-stayed retired.
-
-
-### 10. I Miss Rachel Farmer [0-2]
-
-> B’s team has solid talent on paper. But like it’s manager, it took
-too many drugs last week and passed out to an 0-2 start despite scoring 146 points in a slim loss
-against The Booch. Perhaps B and his former lover Rachel Farmer could use a slice of Brie
-“Bestario” Cheddar to give him a boost next week against Leddy Sr.
+> Living life as a recluse, this man may literally never witness the light of day, but the
+brightness from his laptop screen as he’s tugging away will forever put him at peace
+with his reality.
 
 
-### 11. Skittles Up My White Ba-ss [0-2]
+### 8. Skittles Up My White Ba-ss [1-2]
 
-> While Leddy Sr. and Team Skittles are not looking too good
-to start the season winless, the talent is definitely there. Eric is large and in charge at RB, but the
-team may need a new QB as Stafford looks washed up with that potentially bad elbow. Shout
-out for his great pick of Michael Thomas, who looks fresh catching passes from Bill Cosby.
+> This Workaholic Redneck Texan lives in three places: apartment, car, work repeat. The
+team got off to a slow start but smoked a nice fat dub this week.
 
 
-### 12. Mckissic my BB chu.bbInYaMauff [0-2]
+### 9. Emotional Participant [1-2]
 
-> New name, same problems. The Commissioner may
-have the best RB in the game, but his WRs are trash especially with Evans out this week.
-However, a W for Max is in the cards going against the lowly Team Fish this week.
+> This past week, this team was as pathetic as Dave Kaufman’s failed science expert. His
+tennis career ended abruptly just like his chances for success this year in fantasy. His
+epic defeats just caught up to him and he fizzled out real quick. He couldn’t take the
+emotional toll anymore after realizing Eric Halpern and Kyle Berman were far superior.
+His failures year after year in this league are evidence that his father’s disappointment
+still haunts him to this day.
+
+
+### 10. Who's Peat Weba? [1-2]
+
+> Coming in 10 th place is the man who received a $1 million inheritance from his father at
+age 20 and takes all the credit. He is never afraid to boast about his Columbia Master’s
+Degree, talk up his Big Boy Job at Deloitte on LinkedIn or drop a minimum $250 on a
+mediocre NY Steak House. Don’t worry, we still love you Jared <3. Carson Wentz sucks
+as a real life quarterback, but somehow is actually pretty good at fantasy. Mark Andrews
+is looking like a great pick too.
+
+
+### 11. McKissic My Big Brown Chubb in Ya Mauf [1-2]
+
+> Your team looked like it was going to be the best after the draft was over, but man, your
+wide receivers and James Connor are really shit. Maybe you should recruit ZRayman to
+run your team the rest of the year. Plus I miss his bitching about unfair trades in the chat
+and want to bring that back.
+
+
+### 12. Donnie Wahlberg [0-3]
+
+> A heartfelt win by my team against yours this week just to keep you in your place at the
+bottom in this league felt so, so, gratifying. Jordan’s teams have traditionally sucked in
+this league, but never to the degree this Burnout’s have. Year after Year after Year, we
+witness the same and it is a beautiful thing.
+Here’s one for books:
+
+![Brandon](https://i.imgur.com/Cj4sSHq.png)
 
 ___
 ___
