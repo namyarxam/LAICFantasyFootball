@@ -29,7 +29,7 @@ No idea, but I fucking love it! Please keep winning, I beg you.
 meat’s Johnny Tsunami hair, this cockman’s branches are growing wildly. Growth! Thick!
 Thick Cock! Look at those ceps! Rock hard calves!
 
-![Zach]([https://octodex.github.com/images/bannekat.png](https://i.imgur.com/mZdB7Gw.png)
+![Zach](https://i.imgur.com/mZdB7Gw.png)
 
 
 ### 3. Stiff For Kliff [1-1]
