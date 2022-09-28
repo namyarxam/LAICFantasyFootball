@@ -1,11 +1,11 @@
 
-## **Week 2 LAIC Rankings**
+## **Week 3 LAIC Rankings**
 
-- Week 2 rankings courtesy of Leddy! Enjoy!
+- Week 3 rankings courtesy of Leddy! Enjoy!
 - Daniel has been paid $10 for being the weekly top scorer. 
 
 ___
-## **Week 2 Rename**:
+## **Week 3 Rename**:
 
 Jkauff's team name "**_Jkauff in Ya Mauf_**" has been renamed to "**_Emotional Participant_**".
 
