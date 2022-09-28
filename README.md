@@ -9,7 +9,7 @@ ___
 
 Jkauff's team name "**_Jkauff in Ya Mauf_**" has been renamed to "**_Emotional Participant_**".
 
-Brandon's team is now elgible to be re-named back. 
+Brandon's team is now elgible to be re-named back, and he immediately changed his name back the second he could. That's how we know it was a good name, lets get more of that! 
 
 ____
 
