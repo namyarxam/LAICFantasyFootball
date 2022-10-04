@@ -1,3 +1,73 @@
+## **Week 4 LAIC Rankings**
+
+- Rankings this week are a bit more fun than normal, enjoy!
+- Enrique has been paid $10 for being the weekly top scorer.
+
+---
+
+## **Week 4 Rename**:
+
+Deans's team name "**_A Hardman in my Butker_**" has been renamed to "**\_Machine Gun Kelly's #1 Fan**".
+
+Make sure to check out his ranking this week!
+
+Max has renamed his team back from his name change in week 2.
+
+---
+
+### 1. Big Brown Chu.bb Hurts? [3-1]
+
+![Gigachad](https://media4.giphy.com/media/CAYVZA5NRb529kKQUc/giphy.gif)
+
+### 2. Fire Kliff Into the Sun [3-1]
+
+![Cardinals](https://media.tenor.com/DWMSfFw0ZecAAAAd/arizona-cardinals.gif)
+
+### 3. The Junkyard Salami Branches [3-1]
+
+![RJ1](https://media.tenor.com/wAIW1aMIEKAAAAAd/rj-barrett.gif)
+
+### 4. The Booch [3-1]
+
+![Eli](https://media.tenor.com/PufsgPc640QAAAAC/eli-manning.gif)
+
+### 5. Team Fish [2-2]
+
+![McRib](https://media.tenor.com/0JMMsDzVm84AAAAC/mcrib-mcrib-is-back.gif)
+
+### 6. Punta Gorda Floridiots [2-2]
+
+![ECU](https://media.tenor.com/3-m7b_GhLSAAAAAd/ecu.gif)
+
+### 7. RJ Barrett (previously known as Daniel Negroni) [2-2]
+
+![Mike](https://media.tenor.com/d7-B9BPpNlUAAAAC/woodson-knicks.gif)
+
+### 8. Donnie Wahlberg [0-4]
+
+![PP](https://media.tenor.com/N8DT5dQk8e0AAAAC/paul-pierce-basketball.gif)
+
+### 9. Machine Gun Kelly's #1 Fan (previously known as A Hardman in my Butker) [2-2]
+
+![DeanMGK](https://i.imgur.com/vxYYOTv.png)
+
+### 10. Skittles Up My White Ba-ss [1-3]
+
+![Cardinals](https://media.tenor.com/qYGV1sstL-IAAAAd/porzingis-face.gif)
+
+### 11. Emotional Participant [1-3]
+
+![Cardinals](https://media.tenor.com/qhlxBJRItzUAAAAC/butt-fumble.gif)
+
+### 12. Who's Peat Weba? [1-3]
+
+![AB](https://i.imgur.com/jdeXaKI.png)
+
+---
+
+---
+
+---
 
 ## **Week 3 LAIC Rankings**
 
