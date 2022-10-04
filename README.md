@@ -37,7 +37,7 @@ Max has renamed his team back from his name change in week 2.
 
 ### 6. Punta Gorda Floridiots [2-2]
 
-![ECU]([https://media.tenor.com/3-m7b_GhLSAAAAAd/ecu.gif](https://media3.giphy.com/media/XTIAuLn4w4RIaoLGub/giphy.gif?cid=790b761177673ca00ddd4becd6aeb20b6562a842a9a8a509&rid=giphy.gif&ct=g))
+![ECU](https://media3.giphy.com/media/XTIAuLn4w4RIaoLGub/giphy.gif)
 
 ### 7. RJ Barrett (previously known as Daniel Negroni) [2-2]
 
