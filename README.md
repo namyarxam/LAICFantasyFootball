@@ -7,7 +7,7 @@
 
 ## **Week 4 Rename**:
 
-Deans's team name "**_A Hardman in my Butker_**" has been renamed to "**\_Machine Gun Kelly's #1 Fan**".
+Deans's team name "**_A Hardman in my Butker_**" has been renamed to "**_Machine Gun Kelly's #1 Fan_**".
 
 Make sure to check out his ranking this week!
 
