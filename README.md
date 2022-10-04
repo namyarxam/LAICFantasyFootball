@@ -21,7 +21,7 @@ Max has renamed his team back from his name change in week 2.
 
 ### 2. Fire Kliff Into the Sun [3-1]
 
-![Cardinals](https://media.tenor.com/DWMSfFw0ZecAAAAd/arizona-cardinals.gif)
+![Cardinals](https://media.tenor.com/BIKT4dnPO6sAAAAC/john-brown-cardinals.gif)
 
 ### 3. The Junkyard Salami Branches [3-1]
 
