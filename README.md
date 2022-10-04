@@ -55,7 +55,7 @@ Max has renamed his team back from his name change in week 2.
 
 ![Cardinals](https://media.tenor.com/qYGV1sstL-IAAAAd/porzingis-face.gif)
 
-### 11. Emotional Participant [1-3]
+### 11. Emotional Participant [2-2]
 
 ![Cardinals](https://media.tenor.com/qhlxBJRItzUAAAAC/butt-fumble.gif)
 
@@ -137,7 +137,7 @@ with his reality.
 team got off to a slow start but smoked a nice fat dub this week.
 
 
-### 9. Emotional Participant [1-2]
+### 9. Emotional Participant [2-2]
 
 > This past week, this team was as pathetic as Dave Kaufman’s failed science expert. His
 tennis career ended abruptly just like his chances for success this year in fantasy. His
