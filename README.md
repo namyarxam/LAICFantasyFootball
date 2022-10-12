@@ -18,6 +18,7 @@ However, if one of those dogs gets put down, this team could be vulnerable as th
 >**a. Offense Rank: 1**
 
 >**b. Defense Rank: 2**
+
 ___
 
 ### 2. The Junkyard Salami Branches [4-1]
@@ -27,6 +28,7 @@ ___
 >**a. Offense Rank: 3**
 
 >**b. Defense Rank: 1**
+
 ___
 
 ### 3. Fire Kliff Into the Sun [3-2]
@@ -39,6 +41,7 @@ real either).
 >**b. Defense Rank: 9**
 
 ![KliffGF](https://i.imgur.com/eMt03pi.png)
+
 ___
 
 ### 4. Punta Gorda Floridiots? [3-2]
@@ -50,6 +53,7 @@ ___
 >**b. Defense Rank: 6**
 
 ![Kupp](https://i.imgur.com/aaKujRR.png)
+
 ___
 
 ### 5. Team Fish [3-2]
@@ -68,6 +72,7 @@ needs to watch out, cause AB’s coming for his wife.
 *Photo below is Courtesy of Antonio Brown, President of DONDA SPORTS*
 
 ![AJB](https://i.imgur.com/f610auu.png)
+
 ___
 
 ### 6. Donnie Wahlberg [1-4]
@@ -83,6 +88,7 @@ below…
 >**a. Offense Rank: 5**
 
 >**b. Defense Rank: 10**
+
 ___
 
 ### 7. The Booch [3-2]
@@ -94,6 +100,7 @@ points projection as of writing this. Justin Fields as your QB sums it up.
 >**a. Offense Rank: 7**
 
 >**b. Defense Rank: 11**
+
 ___
 
 ### 8. Skittles Up My White Ba-ss [2-3]
@@ -106,6 +113,7 @@ trying to match your transaction count with the number of sexual assaults this d
 >**b. Defense Rank: 5**
 
 ![LedTransactions](https://i.imgur.com/GGUhwLw.png)
+
 ___
 
 ### 9. Yuddies and Tuddies [2-3]
@@ -115,6 +123,7 @@ ___
 >**a. Offense Rank: 9**
 
 >**b. Defense Rank: 3**
+
 ___
 
 ### 10. Renaldo Balkman [4-1]
@@ -124,6 +133,7 @@ ___
 >**a. Offense Rank: 11**
 
 >**b. Defense Rank: 12**
+
 ___
 
 ### 11. JKauff In Ya Mauf [2-3]
@@ -135,6 +145,7 @@ sure you invite the entire league 😀
 >**a. Offense Rank: 12**
 
 >**b. Defense Rank: 8**
+
 ___
 
 ### 12. Who's Peat Weba? [1-4]
@@ -144,6 +155,7 @@ ___
 >**a. Offense Rank: 10**
 
 >**b. Defense Rank: 7**
+
 ___
 ___
 ___
