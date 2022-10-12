@@ -126,7 +126,7 @@ ___
 
 ___
 
-### 10. Renaldo Balkman [4-1]
+### 10. Renaldo Balkman [2-3]
 
 > Your team needs as much help as it does luck going forward. Your RBs are playing like trash, and your WRs look tired. Maybe you can call upon your whiney bitch brother Zach to help you? Be warned though as he might cancel you like he did this league…
 
