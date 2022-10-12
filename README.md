@@ -32,7 +32,7 @@ ___
 ### 3. Fire Kliff Into the Sun [3-2]
 
 > The man with a hard-on for Kliff Kingsbury is coming off a tough loss. Maybe direct your anger to his bimbo girlfriend instead? (spoiler alert – the buns don’t look
-real either)
+real either).
 
 >**a. Offense Rank: 2**
 
