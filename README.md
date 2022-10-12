@@ -1,10 +1,10 @@
-## **Week 2 LAIC Rankings**
+## **Week 5 LAIC Rankings**
 
 - Week 5 rankings courtesy of Zicca.
 - Daniel (once again) has been paid $10 for being the weekly top scorer.  
 
 ___
-## **Week 2 Rename**:
+## **Week 5 Rename**:
 
 Max's team name "**_RJ Barrett_**" has been renamed to "**_Renaldo Balkman_**".
 
