@@ -1,3 +1,154 @@
+## **Week 2 LAIC Rankings**
+
+- Week 5 rankings courtesy of Zicca.
+- Daniel (once again) has been paid $10 for being the weekly top scorer.  
+
+___
+## **Week 2 Rename**:
+
+Max's team name "**_RJ Barrett_**" has been renamed to "**_Renaldo Balkman_**".
+
+As noted in GroupMe, team names last (at least) 2 weeks. You can keep your name if you want. 
+___
+
+### 1. Big Brown Chu.bb Hurts? [4-1]
+
+> Another W for the highest scoring team in the league by a long shot. This team is buoyed by a trio of Grade A junkyard dogs in Chubb, Henry, and Hurts.
+However, if one of those dogs gets put down, this team could be vulnerable as those receivers. 
+
+>**a. Offense Rank: 1**
+
+>**b. Defense Rank: 2**
+___
+
+### 2. The Junkyard Salami Branches [4-1]
+
+> The deli was serving up Hard Salami again this week. Keep those extra thick slices coming big boy.
+
+>**a. Offense Rank: 3**
+
+>**b. Defense Rank: 1**
+___
+
+### 3. Fire Kliff Into the Sun [3-2]
+
+> The man with a hard-on for Kliff Kingsbury is coming off a tough loss. Maybe direct your anger to his bimbo girlfriend instead? (spoiler alert – the buns don’t look
+real either)
+
+>**a. Offense Rank: 2**
+
+>**b. Defense Rank: 9**
+
+![KliffGF](https://i.imgur.com/eMt03pi.png)
+___
+
+### 4. Punta Gorda Floridiots? [3-2]
+
+> There’s a lot of beef on this team, but none beefier than that Stallion below.
+
+>**a. Offense Rank: 4**
+
+>**b. Defense Rank: 6**
+
+![Kupp](https://i.imgur.com/aaKujRR.png)
+___
+
+### 5. Team Fish [3-2]
+
+> Top dog Davante Adams is likely facing a suspension for “assaulting” that cameraman in yesterday’s MNF game, although Missouri’s very own “Worlds of Fun” theme
+park took no time banning his black ass. However, the never-ending story has been what the
+hell is going with Tom Brady, who has been losing bitches left and right. Whether it was the
+100% sane Antonio Brown last year, Toothless Cole Beasley last week (who has now
+subsequently retired), or his Brazilian hothead of a wife Gisele, the man has seemingly lost it. TB
+needs to watch out, cause AB’s coming for his wife. 
+
+>**a. Offense Rank: 6**
+
+>**b. Defense Rank: 4**
+
+*Photo below is Courtesy of Antonio Brown, President of DONDA SPORTS*
+
+![AJB](https://i.imgur.com/f610auu.png)
+___
+
+### 6. Donnie Wahlberg [1-4]
+
+> It breaks my heart to see the Farm gone and Donnie back, but
+hopefully the change leads to some W’s considering you just picked up your first. Despite that,
+the Burnout’s team is actually pretty good and has faced some tough opponents. While he was
+tripping on some acid, the Meat to my Potatoes did his own rankings last night as shown
+below…
+
+![BrandonGroupMe](https://i.imgur.com/1Wj62zt.png)
+
+>**a. Offense Rank: 5**
+
+>**b. Defense Rank: 10**
+___
+
+### 7. The Booch [3-2]
+
+> After your big trade with J-Kauff last week, Darren Waller rewarded you with
+a hearty 0 points. To make matters worse, a tough week lies ahead as you have the lowest
+points projection as of writing this. Justin Fields as your QB sums it up.
+
+>**a. Offense Rank: 7**
+
+>**b. Defense Rank: 11**
+___
+
+### 8. Skittles Up My White Ba-ss [2-3]
+
+> Your team is as boring as the state you live in. And shame on you for adding Bill Cosby to your roster. I don’t know what the fuck where you doing here –
+trying to match your transaction count with the number of sexual assaults this dog has?
+
+>**a. Offense Rank: 8**
+
+>**b. Defense Rank: 5**
+
+![LedTransactions](https://i.imgur.com/GGUhwLw.png)
+___
+
+### 9. Yuddies and Tuddies [2-3]
+
+> After two straight wins, the Bean has now lost 3 straight. Just like his Mets, this one looks like a loser.
+
+>**a. Offense Rank: 9**
+
+>**b. Defense Rank: 3**
+___
+
+### 10. Renaldo Balkman [4-1]
+
+> Your team needs as much help as it does luck going forward. Your RBs are playing like trash, and your WRs look tired. Maybe you can call upon your whiney bitch brother Zach to help you? Be warned though as he might cancel you like he did this league…
+
+>**a. Offense Rank: 11**
+
+>**b. Defense Rank: 12**
+___
+
+### 11. JKauff In Ya Mauf [2-3]
+
+> I hope you’re looking forward to your upcoming 30 th birthday party in
+New Orleans that I recently heard about, cause you ain’t got shit to celebrate here. Just make
+sure you invite the entire league 😀
+
+>**a. Offense Rank: 12**
+
+>**b. Defense Rank: 8**
+___
+
+### 12. Who's Peat Weba? [1-4]
+
+> Deprived of talent, this loser of 3 straight games appears to be the trash can of this league. Only one person truly believes in Geno Smith, and that’s Geno Smith.
+
+>**a. Offense Rank: 10**
+
+>**b. Defense Rank: 7**
+___
+___
+___
+
 ## **Week 4 LAIC Rankings**
 
 - Rankings this week are a bit more fun than normal, enjoy!
