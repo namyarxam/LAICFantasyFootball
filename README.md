@@ -8,7 +8,6 @@ ___
 
 Max's team name "**_RJ Barrett_**" has been renamed to "**_Renaldo Balkman_**".
 
-As noted in GroupMe, team names last (at least) 2 weeks. You can keep your name if you want. 
 ___
 
 ### 1. Big Brown Chu.bb Hurts? [4-1]
