@@ -1,6 +1,6 @@
 ## **Week 6 LAIC Rankings**
 
-- Week y rankings courtesy of Zach.
+- Week 6 rankings courtesy of Zach.
 - Dean has been paid $10 for being the weekly top scorer.  
 
 ___
