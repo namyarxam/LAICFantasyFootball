@@ -1,3 +1,89 @@
+## **Week 6 LAIC Rankings**
+
+- Week y rankings courtesy of Zach.
+- Dean has been paid $10 for being the weekly top scorer.  
+
+___
+## **Week 2 Rename**:
+
+JKauf's team name "**_JKauf in Ya Mauf_**" has been renamed to "**_Arianna Brown's Snuggle Bunnies_**".
+
+___
+
+### 1. Team Fish [4-2]
+
+> Team Fish dug it in hard and cream pied Leddy this week. Even with a soft, emasculated, and newly single sexy Tom at the helm, this squad continues to thrive with the help of some junkyard stallions in Pittman Jr & Breece Hall. Look for Z to do just like his team will in the coming weeks…tug till the skin gets ashy and celebrate with a big plate of halal guys (extra white sauce on the side.)
+
+___
+
+### 2. Big Brown Chu.bb Hurts [5-1]
+
+> Leddy Jr’s squad has resembled the aura of prime OJ this year. For all of our sakes let’s hope that they go from prime OJ to crime OJ sooner rather than later. Even on a down week his team was formidable and pulled out a dub against lowly Jordy. Everyone better be taking birth control the rest of the season because this team goes RAW.
+
+___
+
+### 3. The Booch [4-2]
+
+> The Booch came out of the BOT guns blazing this week. His heavy WR strategy is starting to pay off big time. Just like their namesake, this team is packing handguns, wearing wife beaters and drinking straight from the jug so watch out.
+
+___
+
+### 4. Donnie Wahlberg [2-4]
+
+> After spending the first few weeks of the season in rehab, Big B has found his spark…he’s still looking for his Juul between the couch cushions, but he has definitely found his spark. Ekeler has been on a tear the last couple weeks and Tyreek continues to do his thing…lucky for B that “thing” is no longer beating women to a pulp. I’m not sure I see it happening personally, but don’t be shocked if this team, who’s managed by my favorite muscle man, makes a run to get back in the playoff race. 
+
+___
+
+### 5. The Junkyard Salami Branches [4-2]
+
+> The Branches suffered from SEVERE E-D this week after blowing a fat steamy load last week. Their junkyard stallion of a QB has been struggling to regain that early season success and with the disappearances of DJ Moore and Kamara thus far this season they’re looking vulnerable in a few areas, but don’t be surprised when they get back on track next week cause they fuck HARD.
+
+___
+
+### 6. Yuddies and Tuddies [3-3]
+
+> Deano creamo’dddd. Led by purebred stallions Josh Allen and McCaff this team got a big dub. Outside of a few players though this roster seems a bit tired in my opinion…but this is coming from a guy who has watched less than 3 games total this year so who knows. I’m a big fan of the Deano so hope he keeps on flicking beanos straight into the playoff picture.
+
+___
+
+### 7. Renaldo Balkman [3-3]
+
+> Ray (Max) pulled out an important win this week to climb back to .500 on the season. He’s got a couple of good looking men in Herbert & Thielen, but are they stallions this year?…I’m not sold yet. Deon Jackson carried them to a W and they probably would’ve lost this week if they hadn’t gone up against literal pond scum, but expect Ray to hack the circuit board and do his best to keep this team afloat.
+
+___
+
+### 8. Punta Gorda Floridiots [3-3]
+
+> This team got beat harder than Kareem Hunt’s ex girlfriend this week, taking a fat L against The Booch. The roster is there, but the consistency has not been. Even with “Man Candy” Kupp leading the way this squad will need a rub n tug to stay in the playoff race.
+
+___
+
+### 9. Skittles Up My White Ba-ss  [2-4]
+
+> Despite the 2-4 record this team has astronomical COCK. Despite that, Big Dick Rick might need to suit up as a flex option himself in order to keep this squad from falling further. I’m expecting an up and down rest of the season and some horrible trade requests in this team’s future. Although don’t let this ranking take away from the fact that Eric has a herculean shaft.
+
+___
+
+### 10. Fire Kliff Into the Sun [3-3]
+
+> This team started out hot and has since fizzled into mediocrity. I can’t say much about their manager, but if he’s anything like his friend Mac (Max) then you better bet he knows football as well as his way around a mouse and keyboard. With that in mind, look for Enrique to pull off some magic either on the free agency market or with some fancy lineup changes to get out of this slump. 
+
+___
+
+### 11. Who's Pete Weba? [1-5]
+
+> This team needs a hand jibber ASAP! The juxtaposition between this team and its manager is almost poetic. One is a small, flaccid bottom feeder and the other is a COLOSSAL MAMMOTH of a man. Joe Mixon has been ok, but not what you need thus far from a first round pick. They’re weak in too many areas and it’s only going to get tougher from here next week when he plays the newly energized coke fueled Donnie boys. Look for this squad to be eliminated from the playoff picture early and taking their talents down to the Jersey Shore for some gym, tanning, and dab hits.
+
+___
+
+### 12. Arianna Brown's Snuggle Bunnies [2-4]
+
+> It’s a shame that a wicked forehand doesn’t translate to fantasy wins because this squad is disturbingly bad. I’m actually starting to wonder if I’m not the one who watches the least amount of football in this league. Soft at WR…softer at RB…and even Russ (similar to the owner of this squad) is looking like a very soft 6 on the man scale. Just ugly stuff…but the good news is there are a lot of semi-bad teams around the league this year so a couple of BIG performances and this team could be right back in it.
+
+___
+___
+___
+
 ## **Week 5 LAIC Rankings**
 
 - Week 5 rankings courtesy of Zicca.
