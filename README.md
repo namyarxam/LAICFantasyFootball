@@ -1,4 +1,4 @@
-
+ 
 ## **LM Notes**
 
 - Week 1 rankings are courtesy of Enrique
@@ -11,8 +11,6 @@ ___
 
 
 Week 1 is in the books, and I hope there aren't any Jets fans in this league. Have fun watching Zach Wilson for another 17 weeks.  Maybe start watching some Caleb Williams highlights?
-
-___
 
 ## Rankings
 
