@@ -25,7 +25,7 @@ On the bright side, future Jet Jordan Love looked great on Sunday. Just gotta wa
 
 ### 3. Mac Jones Rayman (124.98 pts)
 
-Max's team barely squeaked 0ut a win, but did s0 despite Burr0w and Saqu0n's best efforts. I like his fantasy team's chances, which is m0re than I can say ab0ut the Giants. H0w much is Daniel J0nes's c0ntract again?
+Max's team barely squeaked **0**ut a win, but did s0 despite Burr0w and Saqu0n's best efforts. I like his fantasy team's chances, which is m0re than I can say ab0ut the Giants. H0w much is Daniel J0nes's c0ntract again?
 
 ![alt text](https://media0.giphy.com/media/lGbz7CsaCj4Tm/giphy.gif)
 
