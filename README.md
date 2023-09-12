@@ -65,14 +65,12 @@ Since I joined the league last year, I've thought the same thing: Who the fuck i
 
 ![alt text](https://media.giphy.com/media/uvbtV2YtKV4bcJPdCG/giphy.gif)
 
-
 ___
 
 ### 8. Bijan Mustardson
 I may have lost this week on the scoreboard, but at least Bijan had a sick touchdown.  Not alot of bright spots for me this week--the Cardinals also lost to the Commanders while a make-a-wish kid played QB. At least we get the Giants next week, which is a guaranteed win.
 
 ![alt text](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExbGZkaHprbDlpY3gwZjRrZWMwaGNrbmczdHZ0N3d6cGRteDU2ZGxhYyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/65euSVSbzxnbHc1iAh/giphy.gif)
-
 
 ___
 
