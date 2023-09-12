@@ -15,6 +15,7 @@ Week 1 is in the books, and I hope there aren't any Jets fans in this league. Ha
 
 ### Rankings
 
+___
 
 ### 1. Team Fish (144.28 pts)
 Zicca comes out swinging from the pre-draft drama and drops his cock on the table with the highest weekly score (with a little help from the best defensive performance of the last decade). Maybe now that he knows his team is good he'll pay his dues?
