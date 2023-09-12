@@ -22,7 +22,7 @@ Zicca comes out swinging from the pre-draft drama and drops his cock on the tabl
 ___
 
 ### 2. Jkauff in Ya Mauff (144.2 pts)
-Jordan's team Jkauff'd all over my team, and was second highest scorer, barely losing due to the Giants not being able to put up even 3 points. To top it off, Aaron Rodgers went down with a likely season ending injury after only a few plays. You'll always have this to remember Rodgers by: 
+Jordan's team Jkauff'd all over my team, and was second highest scorer, barely losing due to the Giants not being able to put up even 3 points. To top it off, Aaron Rodgers went down with a season ending injury after only a few plays. You'll always have this to remember Rodgers by: 
 ![alt text](https://a.espncdn.com/combiner/i?img=%2Fmedia%2Fmotion%2Ffastclipper%2F2023%2F0911%2Fevc_NFL_20230911_no_event_name_8405d777_5bf8_429d_ad84_32a0fcaab5ad_4821%2Fevc_NFL_20230911_no_event_name_8405d777_5bf8_429d_ad84_32a0fcaab5ad_4821.jpg)
 
 On the bright side, future Jet Jordan Love looked great on Sunday. Just gotta wait another 15 years for him.
