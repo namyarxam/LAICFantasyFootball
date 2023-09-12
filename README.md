@@ -109,5 +109,5 @@ Now I know Brandon's team is 1-0, so why is he 12th?  Not only did he have the l
 
 At least you got the Eagles.
 
-![alt text](https://cdn.discordapp.com/attachments/189183819385929728/1149551118716764160/image.png)
+![alt text](https://media.tenor.com/jfmcKLYLoygAAAAC/jalen-hurts-fumble-jalen-hurts.gif)
 
