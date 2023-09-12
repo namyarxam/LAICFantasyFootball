@@ -3,6 +3,10 @@
 
 @import "{{ site.theme }}";
 
+body {
+  font-family: system-ui !important;
+}
+
 #forkme_banner {
   display: none !important;
 }
