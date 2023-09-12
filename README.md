@@ -1,16 +1,14 @@
+# LAIC Week 1 Rankings
+
+
+Week 1 is in the books, and I hope there aren't any Jets fans in this league. Have fun watching Zach Wilson for another 17 weeks.  Maybe start watching some Caleb Williams highlights?
+
  
 ## **LM Notes**
 
 - Week 1 rankings are courtesy of Enrique
 - Zicca will be venmo'd $10 from Eric for being the top scorer of the week
 - Team rename is in GroupMe
-
-___
-
-# LAIC Week 1 Rankings
-
-
-Week 1 is in the books, and I hope there aren't any Jets fans in this league. Have fun watching Zach Wilson for another 17 weeks.  Maybe start watching some Caleb Williams highlights?
 
 ## Rankings
 
