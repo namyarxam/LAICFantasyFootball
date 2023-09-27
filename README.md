@@ -60,4 +60,4 @@ Points for the name but you’re awful. Like don’t get me wrong I love Bijan. 
 Zicca get off Onlyfans and pay attention. You did pretty decent week 1 taking down starchild lednerpants. However, your team has fucking crumbled in the two weeks since. You’re 1-2 – all is not lost. Also are we ever gonna meet dude? Kinda feels like you’re avoiding me at this point. I promise I don’t bite. I just don’t shut the fuck up.
 
 
-Good luck to all in their coming matchups, except Jkauff and Ledner. Fuck you both and fuck your Jets!!!!!!!!!!!!!!!!!!!!
+## Good luck to all in their coming matchups, except Jkauff and Ledner. Fuck you both and fuck your Jets!!!!!!!!!!!!!!!!!!!!
