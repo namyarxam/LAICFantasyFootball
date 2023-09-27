@@ -1,90 +1,63 @@
-# LAIC Week 1 Rankings
+# LAIC Week 3 Rankings
 
-Week 1 is in the books, and I hope there aren't any Jets fans in this league. Have fun watching Zach Wilson for another 17 weeks. Maybe start watching some Caleb Williams highlights?
+Okay fuckers Max told me that it’s my week to do the rankings. Out of respect for the big man I am prioritizing these rankings over the league I actually commission. Ledner is in both leagues and will probably squeal on me for being a bad commissioner. But enough about the human calculator.  Congrats to Brando on his engagement! When you said you were proposing I legit thought you were proposing that we come over and watch football. Also congrats on having Devante Adams and Kennan Allen. But mostly congrats on the proposal.
 
 ## **LM Notes**
 
-- Week 1 rankings are courtesy of Enrique
-- Zicca will be venmo'd $10 from Eric for being the top scorer of the week
-- Team rename is in GroupMe
+- Week 3 rankings are courtesy of Jared
+- Brandon has been paid $20 for coming in first place last week and this week. 
+- Team rename will be in GroupMe.
+- To avoid scuffed rankings in the future e-mail me at mxray333@gmail.com with the rankings so I can put them here.
 
 ## Rankings
 
-### 1. Team Fish (144.28 pts)
+### 1. JKauff in Ya Maufff
 
-Zicca comes out swinging from the pre-draft drama and drops his cock on the table with the highest weekly score (with a little help from the best defensive performance of the last decade). Maybe now that he knows his team is good he'll pay his dues?
+In a surprise twist I am giving Jkauff the top spot. Why? Because of consistency. He has scored roughly 140 points every week like clockwork. That is in spite of Deandre Hopkins forgetting how to catch and Kyle Pitts continuing to be a tease. He also gets Kamara back this week Ayuk wont be hurt forever. Anyway we play this week, so fuck you and how about Zach Wilson?
 
-![alt text](https://media.tenor.com/Myt7viKzaJkAAAAC/bring-money-bring-me-the-money.gif)
+### 2. Donnie Wahlberg
 
-### 2. Jkauff in Ya Mauff (144.2 pts)
+See my opening paragraph. If the Raiders game plan is just gonna be throw it Devante Adams, I think you’ll be okay. Keenan also should continue to stay hot since Mike Williams died again.
 
-Jordan's team Jkauff'd all over my team, and was second highest scorer, barely losing due to the Giants not being able to put up even 3 points. To top it off, Aaron Rodgers went down with a season ending injury after only a few plays. You'll always have this to remember Rodgers by:
-![alt text](https://a.espncdn.com/combiner/i?img=%2Fmedia%2Fmotion%2Ffastclipper%2F2023%2F0911%2Fevc_NFL_20230911_no_event_name_8405d777_5bf8_429d_ad84_32a0fcaab5ad_4821%2Fevc_NFL_20230911_no_event_name_8405d777_5bf8_429d_ad84_32a0fcaab5ad_4821.jpg)
+### 3. Mac Jones Rayman 
 
-On the bright side, future Jet Jordan Love looked great on Sunday. Just gotta wait another 15 years for him.
+Mac has Raheem Mostert so I am going to assume that he won his matchup this past week. Thanks again for drafting for me in my other league buddy. For a team that is dealing with an injured Saquan Max remains scary due to him having the dolphins primary ball carrier. Plus it’s Mac. Idk what else the man does with his time besides football, video games, discord and twitch.
 
-### 3. Mac Jones Rayman (124.98 pts)
+### 4. Yuddies and Tuddies 
 
-Max's team barely squeaked 0ut a win, but did s0 despite Burr0w and Saqu0n's best efforts. I like his fantasy team's chances, which is m0re than I can say ab0ut the Giants. H0w much is Daniel J0nes's c0ntract again?
+Dean is the only other team that has scored over 400+ points through the first weeks. He has Justin Jefferson, Patrick Mahomes. It hasn’t been splashy, but he is scoring points. Kinda feels like you need Williams or Montgomery to come back for stability but YOLO good luck against Jake.
 
-![alt text](https://media0.giphy.com/media/lGbz7CsaCj4Tm/giphy.gif)
+### 5. Starchfeld Lardstinkers 
 
-### 4. Yuddies and Tuddies (123.14 pts)
+Hey Daniel. How’s Colorado? Are you enjoy it out there? How is the weather? Is it cold? Your fantasy team is 2-1 and your running backs are pretty good. Your fantasy team name sucks. Have a good night.
 
-What fucking idiot gifted this guy Justin Jefferson with the #2 pick? Jefferson dominated the 1st half, putting up 7 catches for 138 yards. Unfortunately, Kirk Cousins is still his QB and he was quiet in the second half. Dean's team has the potential for huge boom weeks and has a good outlook for the rest of the season.
+### 6. The Booch
 
-![alt text](https://www.totalprosports.com/wp-content/uploads/2023/09/justin-jeff-enh-1024x563.jpg)
+I am sorry but Joe Burrow will figure it out. Tee Higgins will be productive, this man has Tyreek Hill and while Justin Fields may suck for real life purposes, he will be productive in fantasy until they either trade him or draft another QB. Don’t sleep on the Booch.
 
-### 5. The Booch (128.94 pts)
+### 7. Who's Peat Weba? 
 
-While Jake's team 0utscored both Max and Dean, I'm bumping him d0wn a sp0t due to the insane perf0rmance required by Tyreek to get him here. And an0ther sp0t f0r n0t having Bijan R0bins0n 0n his team.
+Are we all familiar with Pete Webber the bowler? If you are not familiar with my namesake here is a refresher https://www.youtube.com/watch?v=G74ZHWcsbgc. Anywho I do not love having half of the Bengals offense as the cornerstone of my team, but I believe in Joe Burrow. Hopefully Adam Thielen continues his career resurgence or else I am fucked.
 
-![alt text](https://i.imgur.com/yDZ16Zm.png)
+### 8. Junkyard Salami Dogs
 
-### 6. The Junkyard Salami Branches (105.86 pts)
+Okay I had to remind myself that Zach has Cooper Kupp. Once Kupp is back I am scared of his team. Until that time he has a bunch of wide receivers that he should probably trade to upgrade his RB2 position. Dalvin Cook?! Yikes.
 
-Solid week with a little bit of luck for Zach, with matchup luck going his way. The roster's outlook looks solid, as long as Lamar learns how to throw a football again. Maybe he just had to take a huge shit?
+### 9. Captain McCackle 
 
-![alt text](https://media.tenor.com/a2zeGRtOEgwAAAAd/lamar-jackson.gif)
+What is there to say. You are 0-3 but I still believe in you. Your roster is solid and you just did blow you’re while wad on Ford. You also get to face your brother this weekend. HOW FUN! Did I tell you both of my sisters are playing fantasy football this year? Do you know what that equates to? Them sending me a bunch of questions and calling me asking random fantasy questions since they don’t watch football and are only in it for the money. Hope you visit NYC soon. Ok bye.
 
-### 7. Who's Peat Weba? (111.08 pts)
+### 10. Punta Gorda Floridiots 
 
-Since I joined the league last year, I've thought the same thing: Who the fuck is Peat Weba? The answer alludes me to this day and Google is no help. Maybe the real Peat Weba was the friends we made along the way?
+You’re 0-3 but your team also looks decnent. I believe a resurgence is possible. Kinda feels like Rashadd Penny is droppable though? Idk just a thought.
 
-![alt text](https://media.giphy.com/media/uvbtV2YtKV4bcJPdCG/giphy.gif)
+### 11. Bijan Mustardson
 
-### 8. Bijan Mustardson (110.14 pts)
+Points for the name but you’re awful. Like don’t get me wrong I love Bijan. But the 1st pick felt aggressive to begin with. Maybe I am wrong. And im also still high on Waddle, but your team just feels so far from stable.
 
-I may have lost this week on the scoreboard, but at least Bijan had a sick touchdown. Not alot of bright spots for me this week--the Cardinals also lost to the Commanders while a make-a-wish kid played QB. At least we get the Giants next week, which is a guaranteed win.
+### 12. Mommas Milk Manthers
 
-![alt text](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExbGZkaHprbDlpY3gwZjRrZWMwaGNrbmczdHZ0N3d6cGRteDU2ZGxhYyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/65euSVSbzxnbHc1iAh/giphy.gif)
+Zicca get off Onlyfans and pay attention. You did pretty decent week 1 taking down starchild lednerpants. However, your team has fucking crumbled in the two weeks since. You’re 1-2 – all is not lost. Also are we ever gonna meet dude? Kinda feels like you’re avoiding me at this point. I promise I don’t bite. I just don’t shut the fuck up.
 
-### 9. Captain McCackle (91.42 pts)
 
-I mean listen Eric got Travis fucking Kelce in the second round. We all watched that Thursday game, Mahomes has fucking milkmen at WR. This man's team is stacked once Kelce comes back and gets 15+ targets a game. Week 1 loss is just a small bump en route the playoffs and potentially a championship.
-
-![alt text](https://pbs.twimg.com/ext_tw_video_thumb/1589368597301919744/pu/img/P3KyjeiqRB0AHj4Z.jpg:large)
-
-### 10. Punta Gorda Floridiots (90.94 pts)
-
-Josh Allen fucking sucks. Who's comparing this guy to Mahomes? I swear every time he throws the ball downfield its a 50/50 chance to be a pick, and everytime he runs it looks like he's going to get injured. After how Zach Wilson played last night, Allen might be the worst QB in the AFC East.
-
-Sidenote: Punta Gorda is a city? That comes dangerously close to translating to "Fat Bitch" in spanish--Florida's really playing with fire there.
-
-![alt text](https://media3.giphy.com/media/3McruKxflKTnKT7P8Q/giphy.gif)
-
-### 11. Chark Week (82.96)
-
-Tough week, with not alot of saving grace on the bench. I believe in the turnaround though--Derrick Henry should be back to plowing next week and this roster was involved in alot of blowouts. The players should get more opportunities as the season goes on. Except for Najee, that guy blows.
-
-In an efford to find a gif, I found this. Browns fans are fucked up LMAO.
-
-![alt text](https://phantom-marca.unidadeditorial.es/3111dc0b2561aa0775eb45cc740c5c00/resize/828/f/jpg/assets/multimedia/imagenes/2022/09/19/16635456363890.jpg)
-
-### 12. Donnie Wahlberg (102.34)
-
-Now I know Brandon's team is 1-0, so why is he 12th? Not only did he have the lowest points in a win (his 102 would have lost against 9 other league members), this man is a Philadelphia AND Boston sports fan? Now I'm not from the Northeast US, but isn't this basically a crime? What is going on? On that alone I'm docking you to the bottom. Don't even get me started on the Celtics signing a guy who can't go left to a $300m extension.
-
-At least you got the Eagles.
-
-![alt text](https://media.tenor.com/jfmcKLYLoygAAAAd/jalen-hurts-fumble-jalen-hurts.gif)
+Good luck to all in their coming matchups, except Jkauff and Ledner. Fuck you both and fuck your Jets!!!!!!!!!!!!!!!!!!!!
