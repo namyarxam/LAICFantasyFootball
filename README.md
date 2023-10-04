@@ -16,15 +16,15 @@ We're now through ~25% of the season.  I'd love to write a thoroughly-researched
 
 ### 1. JKauff in Ya Maufff
 
-[random hockey clip](https://imgur.com/a/ByB3q0l)
+[hockey clip](https://imgur.com/a/ByB3q0l)
 
 ### 2. Donnie Wahlberg
 
-[random hockey clip](https://imgur.com/a/654ayR0)
+[hockey clip](https://imgur.com/a/654ayR0)
 
 ### 3. Yuddies and Tuddies 
 
-[random hockey clip](https://imgur.com/a/Xs6iYBj)
+[hockey clip](https://imgur.com/a/Xs6iYBj)
 
 ### 4. Lancaster Barnstormers 
 
@@ -32,7 +32,7 @@ We're now through ~25% of the season.  I'd love to write a thoroughly-researched
 
 ### 5. Junkyard Salami Branches
 
-[random hockey clip](https://imgur.com/a/fjp9fE1)
+[hockey clip](https://imgur.com/a/fjp9fE1)
 
 ### 6. Who's Pete Weba
 
@@ -44,7 +44,7 @@ We're now through ~25% of the season.  I'd love to write a thoroughly-researched
 
 ### 8. Mac Jones Rayman
 
-[random hockey clip](https://imgur.com/a/kON73xB)
+[hockey clip](https://imgur.com/a/kON73xB)
 
 ### 9. The Booch
 
@@ -56,7 +56,7 @@ We're now through ~25% of the season.  I'd love to write a thoroughly-researched
 
 ### 11. Mommas Meat Slave
 
-[random hockey clip](https://imgur.com/a/SFFT8gD)
+[hockey clip](https://imgur.com/a/SFFT8gD)
 
 ### 12. Bijan Mustardson
 
