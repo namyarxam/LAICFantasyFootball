@@ -1,6 +1,8 @@
-# LAIC Week 5 Rankings
+# LAIC Week 6 Rankings
 
-Not much to say about these. Hope y'all enjoy. 
+Week 6 rankings were done be me (Max). 
+
+Had some fun with these.
 
 ## Rankings
 
