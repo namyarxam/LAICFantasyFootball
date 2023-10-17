@@ -1,6 +1,6 @@
 # LAIC Week 5 Rankings
 
-
+Not much to say about these. Hope y'all enjoy. 
 
 ## Rankings
 
