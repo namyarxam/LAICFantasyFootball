@@ -6,134 +6,98 @@
 
 ### 1. JKauff in Ya Maufff (6-0)
 
-_**LOCAL TENNIS STAR BREAKS DOWN CRYING MID-MATCH AFTER HIS UNDEFEATED FANTASY TEAM LOSES IN THE FINALS**_
+_**"BYRAM HILLS TENNIS STAR BREAKS DOWN CRYING MID-MATCH AFTER HIS UNDEFEATED FANTASY TEAM LOSES IN THE FINALS"**_
 
 ![img](assets/LAIC/JKauf.png)
 
 _Quick Thoughts_: I cant knock the teams performance, but I have no confidence in the historical laughing stock of the league reaching the finish line. 
 
-### 2. Donnie Wahlberg (4-1)
+### 2. Donnie Wahlberg (5-1)
 
-What is there really to say about Donnie everyone dislikes this
-guy.. congrats on the engagement, my friend! In the past, he’s been known for his defense
-and sucking the life out of every team he plays. This year, he brought in an offensive-
-minded guy to run his team, and it’s paid off. Second in scoring with a killer WR duo of
-Adams and Allen, will that be enough to sustain long term success? This week will be a
-big test for Donnie to see if he’s a contender or just a pretender.
+_**"STRANGE MAN NEARLY SUFFOCATES AFTER SUPPOSED FRIEND CONVINCES HIM TO DIG FOR EARTHWORMS?"**_
 
-**QB comparison: Jalen Hurts:** Big play ability and can hurt you in different ways. Can this
-level be sustained?
+![img](assets/LAIC/Brandon.png)
 
-### 3. Lancaster Barnstormers (3-2)
+_Quick Thoughts_: This team's roster is honestly terrible but so is Jalen Hurts so maybe he can smush his butt into the endzone this year like the Eagles. 
 
-Ledy Jr. comes into week 6 only 4 points behind Donnie
-and has been lighting up the scoreboard recently. After a massive week 5 behind Moore,
-Nacua, and Kittle, it’s clear Ledy Jr. has some BIG weapons to make a run. The big
-question is, has he found his long term solution at QB? The QB carousel continues, and
-that could haunt him down the stretch.
+### 3. Hickory Crawdads (3-3)
 
-**QB comparison: Justin Herbert:** A young star in the league with massive fantasy upside. Will
-the wins translate?
+_**"TRACES OF URINE AND OTHER BODILY FLUIDS FOUND ON LARGE MAN AFTER LEAVING HIS OUTDOOR SHOWER"**_
 
-### 4. The Junkyard Salami Branches (3-2)
+![img](assets/LAIC/Eric.png)
 
-Frenchman is the lowest scoring 3-2 squad
-coming into week 6 but takes the #4 spot with significant upside. While Frenchman has
-been less than stellar in the past few weeks, the man, the myth, the legend, Cooper Kupp,
-is back in the mix! Kupp makes this a dangerous squad moving forward if he can stay
-healthy. The biggest question looking forward will be overcoming his brutal RB2.
+_Quick Thoughts_: Huge performance this week from a huge man. Travis Kelce is taking over the NFL and your team. 
 
-**QB comparison: Patrick Mahomes:** The league’s gold standard but, like Frenchman, struggling to
-be at the top this year with a few holes on the roster. Can things begin to click in the next few
-weeks?
+### 4. Mac Jones Rayman (3-3) 
 
-### 5. Who's Peat Weba? (3-2)
+_**"FBI'S MOST WANTED CYBER-HACKER SLIPPED UP AFTER PLAYING TOO MANY VIDEO GAMES"**_
 
-Coming in at our #5 spot, Mr. Jared Friedman. Peat Weba is
-coming off a monster week with the highest score in week 5 despite James Conner
-exiting early with an injury. Chase put up a 50-piece last week, but can he really rely on
-that insane production? Jared has a ton of WR weapons, which makes him dangerous and
-will keep him in the mix, but there might be reason for concern with Conner going down
-and a thin RB core behind him. This week against Mac will say a lot about his team!
+![img](assets/LAIC/Max.png)
 
-**QB comparison: Kirk Cousins:** One-dimensional with top 5 fantasy output. Will continue to
-have big weeks but disappear if the game script is not there.
+_Quick Thoughts_: I have the best team in the league. Look at it.
 
-### 6. Punta Gorda Floridiots (2-3)
+### 5. Lancaster Barnstormers (3-3)
 
-This week, Bruce Wallace is sneaking into my top 6
-despite a below 500 record. Digging a little deeper, Punta is 4th in the league in points
-and coming off a monster week 5. With Josh Allen leading the way paired with a strong
-RB1/WR1, there is a lot of upside moving forward. Currently, Punta has a healthy team,
-which will continue to be the biggest factor as some teams are battling major injuries.
+_**"ATLANTA BAR EVACUATED AFTER FLATULENCE ERUPTION FROM A MYSTERIOUS FIGURE"**_
 
-**QB comparison: Lamar Jackson:** Explosive upside, but that hasn’t translated to wins this year-
-does that change in the next few weeks?
+![img](assets/LAIC/Daniel.png)
 
-### 7. Yuddies and Tuddies (3-2)
+_Quick Thoughts_: Very underrated team just like mine. Flying under the radar and if his players are consistently good playoff time the league is screwed. 
 
-A freshly engaged man coming off the biggest weekend of
-his life, unfortunately, did not translate to the field.. While Deano has been a force in the
-league all year, he is coming off his lowest season score in week 5. On top of that, he had
-two devastating blows with injuries to both JJ & Sanders (JJ being the real concern).
-We’ll see if Deano can continue to put up some yuddies with these two out, but it might
-be time to hit the panic button for Loverboy over here!
+### 6. The Junkyard Salami Branches (3-3)
 
-**QB comparison: Tua:** Homerun upside when healthy. Long term health is a big concern.
+_**"LOCAL JACKED EMPLOYEE OF THE KNICKS SHOWS UP AS TOM THIBODEAUS SURPRISE 12TH MAN"**_
 
-### 8. Hickory Crawdads (2-3)
+![img](assets/LAIC/Zach.png)
 
-Ledy!! One of our beloved commissioners over the years has
-run a tight ship and turned the league into a premium fantasy destination. While his team
-currently sits at 2-3, he is 5th in the league in scoring and coming off a nice week 5. He’s
-gotten stellar QB play and true weapons in Diggs &amp; Kelce. The biggest question mark
-with this team is his RBs. Both Pierce &amp; Stevenson have been a major letdown, and that
-has been holding Ledy back from greatness.
+_Quick Thoughts_: You need a RB2 on your team to really have a chance to make a run.
 
-**QB comparison: Justin Fields:** Big play ability at any moment. Boom or Bust on any given
-week.
+### 7. Yuddies and Tuddies (3-3)
 
-### 9. Mac Jones Rayman (2-3)
+_**"OUTGOING, CHARISMATIC, CHIVALROUS, AND HANDSOME MAN - SECRETLY A GAMER?"**_
 
-So much promise for our commish at the beginning of the
-season, but it’s been subpar play to date. Despite Joe Burrow remembering how to throw
-a football in week 5, Mac logged the lowest score of week 5. Health will continue to play
-a major factor for Mac’s soft squad. That said, Mac will be getting Saquon back and
-might be a team to look out for as a threat when healthy down the stretch.
+![img](assets/LAIC/Dean.png)
 
-**QB comparison: Russell Wilson:** On paper, seems strong.. something is just missing.
+_Quick Thoughts_: The Minnesota Dean's have a lot of duplicate team players, which means he can win or lose any week depending on how they do. 
 
-### 10. The Booch (2-3) 
+### 8. Who's Peat Weba?
 
-I’m sorry I’m not at the bottom with you this year, my friend! Coming
-off a solid week 5 win against a disgusting Zicca squad, there is reason to believe The
-Booch can turn things around. Hill continues to be a fantasy luxury, and Fields, in the last
-two weeks, is starting to break out (glad to see you playing him this week ;). Outside of
-Hill, your pass catchers may be the biggest question mark on this team. You might be one
-piece away from jumping up in the standings, and until then, you need to pray to the Hill
-gods.
+_**"MAN CAUGHT TRYING TO SPEND AMEX REWARDS POINTS ON FANTASY FOOTBALL FREE AGENCY"**_
 
-**QB comparison: Gino Smith:** Big weapons, suspect play on the field.
+![img](assets/LAIC/Jared.png)
 
-### 11. Bijan Mustardson (0-5)
+_Quick Thoughts_: We thought the worst of the team I drafted for you at the start of the season but things are turning around. Unfortunately week 7 seems unwinnable so prepare to be ranked lower next week before the comeback. 
 
-Still searching for his first win, Bijan put up a respectable 120
-spot in week 5. Besides a few bright spots, Bijan clearly lacks the depth to be a real
-contender. Bijan also has 5 Cardinals on his squad, which might be a questionable
-strategy from the GM.. That said, Bijan has still been competitive and could sneak a win
-in there pretty soon!
+### 9. The Booch (3-3)
 
-**QB comparison: Bryce Young:** A lot of young talent, not clicking on the field yet.
+_**"OVERSIZED, OVER-AGED ITALIAN GUIDO SENTENCED TO 2 WEEKS IN JUVIE FOR DEALING DRUGS TO HIGH SCHOOLERS"**_
 
-### 12. Team Fish (1-4)
+![img](assets/LAIC/Jake.png)
 
-Last but not least, the real legend Zicca! Oh boy, what a disaster of a
-squad this is. Riding high on a 4 game losing streak, Zicca has been outscored badly by
-the entire league. Zicca does get some major weapons back this week, which could
-completely change the landscape of his team. Moving forward, Ekeler and Taylor should
-spice things up and hopefully change the culture in the locker room. Z is a tactical
-negotiator, so don’t be surprised if he has one big move up his sleeve!
+_Quick Thoughts_: I do not think your QB abundance has aged well. Good luck with that. 
 
-**QB comparison: Bryce Young:** Weapons around, hanging on for dear life.
+### 10. Punta Gorda Floridiots (2-4) 
+
+_**"FLORIDA MAN WRESTLES ALLIGATOR TO THE DEATH AFTER ZAY JONES TOUCHDOWN GETS CALLED BACK"**_
+
+![img](assets/LAIC/Bruce.png)
+
+_Quick Thoughts_: AJ Brown is turning into a freak. You have a high point scoring total so things can easily turn around for you. 
+
+### 11. Bijan Mustardson (1-5)
+
+_**"UTAH MAN SNEAKS INTO ARIZONA CARDINALS ROOM AND IS CAUGHT SNIFFING CLOTHES FROM KYLER MURRAYS LOCKER"**_
+
+![img](assets/LAIC/Enrique.png)
+
+_Quick Thoughts_: First win is huge. Literally 2 games behind THIRD PLACE. Dont give up, you can easily win this entire league (your team sucks lol). 
+
+### 12. Team Fish (1-5)
+
+_**"TRAIN CONDUCTOR ARRESTED AFTER BEGGING HIS FEMALE PASSENGERS FOR A 'SPIT-TUG'"**_
+
+![img](assets/LAIC/Zicca.png)
+
+_Quick Thoughts_: Your team on paper is not the worst, but holy shit they are playing like it. 
 
 
