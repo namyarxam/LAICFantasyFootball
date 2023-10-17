@@ -1,26 +1,16 @@
 # LAIC Week 5 Rankings
 
-The moment you have all been waiting for! It’s only fitting that I am in charge of rankings this
-week as I am taking the league by storm. Big shoutout to our commish Max, who’s been shaky
-as a co-commish over the years – seen some great stuff from you this year, big guy!
 
-In this week’s edition, I will add a fun little twist: 2023 QB comparisons for each team.
 
 ## Rankings
 
-### 1. JKauff in Ya Maufff (5-0)
+### 1. JKauff in Ya Maufff (6-0)
 
-Not only am I the only 5-0 team in the league, but this might
-be the best fantasy team ever assembled! With a perfect record and most points in the
-league, it’s clear I’m the favorite to win the chip. I’m also the second best looking in the
-league, only behind Zicca. We’ll see if Achane to the IR helps level the playing field
-slightly, but it's truly doubtful. Can Ledy Jr. step up for the league this week?
+**LOCAL TENNIS STAR BREAKS DOWN CRYING MID-MATCH AFTER HIS UNDEFEATED FANTASY TEAM LOSES IN THE FINALS**
 
-**QB comparison: Josh Allen:** Highest fantasy upside and can go off on a week-to-week basis.
-Josh Allen tends to fall short in the big moments.. will that happen to me as I go for my first
-chip?
+![img](assets/LAIC/JKauf.png)
 
-![Jake](assets/Jake.jpg)
+_Quick Thoughts_: I cant knock the teams performance, but I have no confidence in the historical laughing stock of the league reaching the finish line. 
 
 ### 2. Donnie Wahlberg (4-1)
 
