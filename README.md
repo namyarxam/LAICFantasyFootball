@@ -2,7 +2,7 @@
 
 Week 6 rankings were done be me (Max). 
 
-Had some fun with these.
+Had some fun with these. In case you can't tell these are AI generated images of your guy's faces. I have 4 images of each of y'all that were generated these were the best i picked from the group.
 
 ## Rankings
 
