@@ -20,7 +20,7 @@ slightly, but it's truly doubtful. Can Ledy Jr. step up for the league this week
 Josh Allen tends to fall short in the big moments.. will that happen to me as I go for my first
 chip?
 
-![Jake](images/Jake.jpg)
+![Jake](assets/Jake.jpg)
 
 ### 2. Donnie Wahlberg (4-1)
 
