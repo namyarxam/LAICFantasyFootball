@@ -1,18 +1,19 @@
-# LAIC Week 6 Rankings
+# LAIC Week 7 Rankings
 
-Week 6 rankings were done be me (Max). 
+Zesus 
 
-Had some fun with these. In case you can't tell these are AI generated images of your guy's faces. I have 4 images of each of y'all that were generated these were the best i picked from the group.
+<INSERT MESSAGE FROM CORRUPT COMMISIONER(S)>
 
 ## Rankings
 
-### 1. JKauff in Ya Maufff (6-0)
+### 1. JKauff in Ya Maufff (6-1)
 
-_**"BYRAM HILLS TENNIS STAR BREAKS DOWN CRYING MID-MATCH AFTER HIS UNDEFEATED FANTASY TEAM LOSES IN THE FINALS"**_
+That’s right – another week, another first place spot by the
+league’s historically worst player. No longer undefeated after that L last week, this “7”
+has a muscle-packed “8” blowing smoke right behind him…
 
-![img](assets/LAIC/JKauf.png)
-
-_Quick Thoughts_: I cant knock the teams performance, but I have no confidence in the historical laughing stock of the league reaching the finish line. 
+a. PF – 1 st place
+b. PA – 6 th place
 
 ### 2. Donnie Wahlberg (5-1)
 
