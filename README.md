@@ -12,8 +12,8 @@ That’s right – another week, another first place spot by the
 league’s historically worst player. No longer undefeated after that L last week, this “7”
 has a muscle-packed “8” blowing smoke right behind him…
 
-a. PF – 1 st place
-b. PA – 6 th place
+- PF – 1 st place
+- PA – 6 th place
 
 ### 2. Donnie Wahlberg (5-1)
 
