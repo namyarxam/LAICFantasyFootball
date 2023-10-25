@@ -15,92 +15,105 @@ has a muscle-packed “8” blowing smoke right behind him…
 - PF – 1 st place
 - PA – 6 th place
 
-### 2. Donnie Wahlberg (5-1)
+### 2. Donnie Wahlberg (6-1)
 
-_**"STRANGE MAN NEARLY SUFFOCATES AFTER SUPPOSED FRIEND CONVINCES HIM TO DIG FOR EARTHWORMS?"**_
+B is ranked the same number as Donnie is to the Wahlberg
+Bros– 2 nd . Only in his drug-infested brain Donnie &gt; Mark (reference – Oscar-worthy
+movies Boogie Nights and Daddy’s Home).
 
-![img](assets/LAIC/Brandon.png)
+- PF – 2 nd place
+- PA – 2 nd place
 
-_Quick Thoughts_: This team's roster is honestly terrible but so is Jalen Hurts so maybe he can smush his butt into the endzone this year like the Eagles. 
+![img](https://i.imgur.com/ZvFHIlD.png)
 
 ### 3. Hickory Crawdads (3-3)
 
-_**"TRACES OF URINE AND OTHER BODILY FLUIDS FOUND ON LARGE MAN AFTER LEAVING HIS OUTDOOR SHOWER"**_
+That’s right – another week, another first place spot by the
+league’s historically worst player. No longer undefeated after that L last week, this “7”
+has a muscle-packed “8” blowing smoke right behind him…
 
-![img](assets/LAIC/Eric.png)
-
-_Quick Thoughts_: Huge performance this week from a huge man. Travis Kelce is taking over the NFL and your team. 
+- PF – 1 st place
+- PA – 6 th place
 
 ### 4. Mac Jones Rayman (3-3) 
 
-_**"FBI'S MOST WANTED CYBER-HACKER SLIPPED UP AFTER PLAYING TOO MANY VIDEO GAMES"**_
+That’s right – another week, another first place spot by the
+league’s historically worst player. No longer undefeated after that L last week, this “7”
+has a muscle-packed “8” blowing smoke right behind him…
 
-![img](assets/LAIC/Max.png)
-
-_Quick Thoughts_: I have the best team in the league. Look at it.
+- PF – 1 st place
+- PA – 6 th place
 
 ### 5. Lancaster Barnstormers (3-3)
 
-_**"ATLANTA BAR EVACUATED AFTER FLATULENCE ERUPTION FROM A MYSTERIOUS FIGURE"**_
+That’s right – another week, another first place spot by the
+league’s historically worst player. No longer undefeated after that L last week, this “7”
+has a muscle-packed “8” blowing smoke right behind him…
 
-![img](assets/LAIC/Daniel.png)
-
-_Quick Thoughts_: Very underrated team just like mine. Flying under the radar and if his players are consistently good playoff time the league is screwed. 
+- PF – 1 st place
+- PA – 6 th place
 
 ### 6. The Junkyard Salami Branches (3-3)
 
-_**"LOCAL JACKED EMPLOYEE OF THE KNICKS SHOWS UP AS TOM THIBODEAUS SURPRISE 12TH MAN"**_
+That’s right – another week, another first place spot by the
+league’s historically worst player. No longer undefeated after that L last week, this “7”
+has a muscle-packed “8” blowing smoke right behind him…
 
-![img](assets/LAIC/Zach.png)
-
-_Quick Thoughts_: You need a RB2 on your team to really have a chance to make a run.
+- PF – 1 st place
+- PA – 6 th place
 
 ### 7. Yuddies and Tuddies (3-3)
 
-_**"OUTGOING, CHARISMATIC, CHIVALROUS, AND HANDSOME MAN - SECRETLY A GAMER?"**_
+That’s right – another week, another first place spot by the
+league’s historically worst player. No longer undefeated after that L last week, this “7”
+has a muscle-packed “8” blowing smoke right behind him…
 
-![img](assets/LAIC/Dean.png)
-
-_Quick Thoughts_: The Minnesota Dean's have a lot of duplicate team players, which means he can win or lose any week depending on how they do. 
+- PF – 1 st place
+- PA – 6 th place
 
 ### 8. Who's Peat Weba?
 
-_**"MAN CAUGHT TRYING TO SPEND AMEX REWARDS POINTS ON FANTASY FOOTBALL FREE AGENCY"**_
+That’s right – another week, another first place spot by the
+league’s historically worst player. No longer undefeated after that L last week, this “7”
+has a muscle-packed “8” blowing smoke right behind him…
 
-![img](assets/LAIC/Jared.png)
-
-_Quick Thoughts_: We thought the worst of the team I drafted for you at the start of the season but things are turning around. Unfortunately week 7 seems unwinnable so prepare to be ranked lower next week before the comeback. 
+- PF – 1 st place
+- PA – 6 th place
 
 ### 9. The Booch (3-3)
 
-_**"OVERSIZED, OVER-AGED ITALIAN GUIDO SENTENCED TO 2 WEEKS IN JUVIE FOR DEALING DRUGS TO HIGH SCHOOLERS"**_
+That’s right – another week, another first place spot by the
+league’s historically worst player. No longer undefeated after that L last week, this “7”
+has a muscle-packed “8” blowing smoke right behind him…
 
-![img](assets/LAIC/Jake.png)
-
-_Quick Thoughts_: I do not think your QB abundance has aged well. Good luck with that. 
+- PF – 1 st place
+- PA – 6 th place
 
 ### 10. Punta Gorda Floridiots (2-4) 
 
-_**"FLORIDA MAN WRESTLES ALLIGATOR TO THE DEATH AFTER ZAY JONES TOUCHDOWN GETS CALLED BACK"**_
+That’s right – another week, another first place spot by the
+league’s historically worst player. No longer undefeated after that L last week, this “7”
+has a muscle-packed “8” blowing smoke right behind him…
 
-![img](assets/LAIC/Bruce.png)
-
-_Quick Thoughts_: AJ Brown is turning into a freak. You have a high point scoring total so things can easily turn around for you. 
+- PF – 1 st place
+- PA – 6 th place
 
 ### 11. Bijan Mustardson (1-5)
 
-_**"UTAH MAN SNEAKS INTO ARIZONA CARDINALS ROOM AND IS CAUGHT SNIFFING CLOTHES FROM KYLER MURRAYS LOCKER"**_
+That’s right – another week, another first place spot by the
+league’s historically worst player. No longer undefeated after that L last week, this “7”
+has a muscle-packed “8” blowing smoke right behind him…
 
-![img](assets/LAIC/Enrique.png)
-
-_Quick Thoughts_: First win is huge. Literally 2 games behind THIRD PLACE. Dont give up, you can easily win this entire league (your team sucks lol). 
+- PF – 1 st place
+- PA – 6 th place
 
 ### 12. Team Fish (1-5)
 
-_**"TRAIN CONDUCTOR ARRESTED AFTER BEGGING HIS FEMALE PASSENGERS FOR A 'SPIT-TUG'"**_
+That’s right – another week, another first place spot by the
+league’s historically worst player. No longer undefeated after that L last week, this “7”
+has a muscle-packed “8” blowing smoke right behind him…
 
-![img](assets/LAIC/Zicca.png)
-
-_Quick Thoughts_: Your team on paper is not the worst, but holy shit they are playing like it. 
+- PF – 1 st place
+- PA – 6 th place
 
 
