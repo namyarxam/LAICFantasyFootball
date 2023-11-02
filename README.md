@@ -1,114 +1,56 @@
-# LAIC Week 7 Rankings
+# LAIC Week 8 Rankings
 
-Zesus 
-
-<INSERT MESSAGE FROM CORRUPT COMMISIONER(S)>
+![img](https://i.imgur.com/PijZQtI.png)
 
 ## Rankings
 
-### 1. JKauff in Ya Maufff (6-1)
+### 1. Team Fish (2-6)
 
-That’s right – another week, another first place spot by the
-league’s historically worst player. No longer undefeated after that L last week, this “7”
-has a muscle-packed “8” blowing smoke right behind him…
+In an attempt to lose the little bit of credibility I have in this league, I will intentionally avoid talking about anything football specific and Z man gets the top spot this week! Anyone that’s packing a 12 inch salami branch is #1 in my book. After blowing his load points wise this week (albeit in a fat L to J kauf) it looks like this team has turned a corner and is ready to pounce on everybody under the age of 12 🌚 Not sure they can get back in the playoff picture, but don’t expect Z to go out quietly. He still has some unfinished business to attend to with our “corrupt” commissioner and a pay per view boxing match might be in the works for the duo. Vote for who you think takes that match in groupme. e
 
-- PF – 1 st place
-- PA – 6 th place
+### 2. JKaufff In Ya Maufff (7-1)
 
-### 2. Donnie Wahlberg (6-1)
+This squad is looking like the Backstreet Boys in their prime with a head coach on a mission this year. This man has been in the trenches year after year so it’s nice to see him in contention finally. If coach Kauf keeps levelheaded and refrains from checking his man scale rating these guys will go all the way.
 
-B is ranked the same number as Donnie is to the Wahlberg
-Bros– 2 nd . Only in his drug-infested brain Donnie &gt; Mark (reference – Oscar-worthy
-movies Boogie Nights and Daddy’s Home).
+### 3. Yuddies and Tuddies (5-3)
 
-- PF – 2 nd place
-- PA – 2 nd place
+I’m feeling bullish on Deano 🙂 and you should be too. This newly engaged stud muffin is coming off of two big wins and should be feeling pretty good going into a matchup with Peat Weba. Look for Deano to be raking in a W and shitposting on wall street bets this week.
 
-![img](https://i.imgur.com/ZvFHIlD.png)
+### 4. Hickory Crawdads (4-4)
 
-### 3. Hickory Crawdads (4-3)
+This guy fucks. Simple as that. King of Cocktopia. He’s got the stallion of all stallions in Kelce and after a rough start to the season has plans to ram his meat rod through a brick wall. If he stays in the playoff picture he’s gonna be a tough out. COCK!
 
-If you’re still looking for my $10 “penalty” payment, you should
-know I sent it via Donkey courier to Hamas.
+### 5. Donnie Wahlberg (6-2)
 
-- PF – 3 rd place
-- PA – 10 th place
+Donnie took a tumble this week, but don’t worry he’s still got a rock cock. That Chubb might not stay up for much longer though. I think that injury is going to bite him more as the season goes on, but still a contender 
 
-### 4. Yuddies and Tuddies (4-3) 
+### 6. The Booch (5-3)
 
-It’s time to send Christopha to beat the shit out of OnlyFan’s
-newest whooore, [Adriana](https://www.foxnews.com/entertainment/sopranos-star-drea-de-matteo-joins-onlyfans-after-labeled-savage-by-hollywood-not-accepting-defeat). Maybe send in Artie Bucco as well.
+The booch recovered his pistol whip from behind the dumpster at Fernando’s Pizza and has been causing havoc lately. Easy matchup this week for him so look for this Italian goon to possibly steal 2nd place soon 
 
-- PF – 6 th place
-- PA – 1 st place 
+![img](https://s3.amazonaws.com/pix.iemoji.com/images/emoji/apple/ios-12/256/italy.png)
 
-### 5. The Junkyard Salami Branches (4-3)
+### 7. Mac Jones Rayman (4-4)
 
-Another successful year with zero effort or
-knowledge put into playin’ the game (a league-low 2 moves). It must be nice to be a
-born stallion.
+I’m still waiting for this “fantasy football wizard” to really impress me one year 🙂. He's got two joysticks to tend to (one for gaming and one for tugging) so I understand his priorities might lie elsewhere, but I can still see this team surprising us with some good fortune. Let’s see how the big trade shakes out before making a definitive statement on Mac’s season.
 
-- PF – 7 th place
-- PA – 3 rd place
+### 8. Lancaster Barnstormers (4-4)
 
-  ![img](https://i.imgur.com/C5GvAOm.png)
+The last time I saw Daniel he basically shit himself at a bar as a defensive tactic to clear a crowded area. His team has that same kind of dog in them and a pretty balanced attack week after week. Could see them going far with some luck.
 
-### 6. The Lancaster Barnstormers (3-4) 
+### 9. Who’s Peat Weba (3-5)
 
-It’s time to drop Mr. Happy Ending if you want a tug in
-the right direction.
+The J-man put up a lot of points this week, but unfortunately it was not enough to get a W. After getting dicked down by lil Led this smooth criminal was last spotted selling his pubic hair on Facebook marketplace. For teams like this on the brink, we’re at the point in the season where one more loss could mean disaster. I still think these guys can sneak into the playoffs, but gonna need a BIG win against Deano this week to get back in the race. 
 
-- PF – 5 th place
-- PA – 11 th place
+### 10. Punta Gorda Tight Ends (3-5)
 
-![img](https://i.imgur.com/wFjN0Q2.png)
+Disappointing season so far, the lower playoff seeds are wide open though so a lil win streak can turn the tide.
 
-### 7. Punta Gorda Tight Ends (2-5)
+### 11. Bijan Mustardson (1-7)
 
-Tough loss last week against Leddy Senior after scoring
-the 2 nd highest points, but I foresee lots of success coming your way…
+This team stinks.
 
-- PF – 4 th place
-- PA – 7 th place 
+### 12. The Junkyard Salami Branches (4-4)
 
-### 8. The Booch (4-3)
-
-I think it’s time to spice up your team. Maybe some Gucci for Boochi?
-
-- PF – 9 th place
-- PA – 5 th place
-
-### 9. Mac Jones Rayman (3-4)
-
-On September 27, 2023, Counter-Strike 2 was released to the
-world. The Enemy (you) has unleashed a barrage of fire alongside your proxy, Jack
-Wellington. A ground invasion looms…
-
-- PF – 8 th place
-- PA – 4 th place
-
-![img](https://i.imgur.com/m4HCLWF.png)
-
-### 10. Who's Peat Weba? (3-4)
-
-hi
-
-- PF – 10 th place
-- PA – 8 th place
-
-### 11. Bijan Mustardson (1-6)
-
-Tough loss this week to yours truly, as the basement is near for
-you…
-
-- PF – 11 th place
-- PA – 9 th place
-
-### 12. Team Fish (2-5)
-
-I rank dead last in both PF and PA. Time to unleash the junkyard dogs…
-
-- PF – 12 th place
-- PA – 12 th place
-
+Blue collar .500 team with nothing special to write home about. This iteration of the salami branches is still very much in the hunt for a playoff spot, but I don’t see them making much noise unless their white stallion wakes up. A bunch of tired players in need of a tug. The ZvZ matchup this week is an important one for both teams this week🌚
 
