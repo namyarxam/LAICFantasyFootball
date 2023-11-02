@@ -6,7 +6,7 @@
 
 ### 1. Team Fish (2-6)
 
-In an attempt to lose the little bit of credibility I have in this league, I will intentionally avoid talking about anything football specific and Z man gets the top spot this week! Anyone that’s packing a 12 inch salami branch is #1 in my book. After blowing his load points wise this week (albeit in a fat L to J kauf) it looks like this team has turned a corner and is ready to pounce on everybody under the age of 12 🌚 Not sure they can get back in the playoff picture, but don’t expect Z to go out quietly. He still has some unfinished business to attend to with our “corrupt” commissioner and a pay per view boxing match might be in the works for the duo. Vote for who you think takes that match in groupme. e
+In an attempt to lose the little bit of credibility I have in this league, I will intentionally avoid talking about anything football specific and Z man gets the top spot this week! Anyone that’s packing a 12 inch salami branch is #1 in my book. After blowing his load points wise this week (albeit in a fat L to J kauf) it looks like this team has turned a corner and is ready to pounce on everybody under the age of 12 🌚 Not sure they can get back in the playoff picture, but don’t expect Z to go out quietly. He still has some unfinished business to attend to with our “corrupt” commissioner and a pay per view boxing match might be in the works for the duo. Vote for who you think takes that match in groupme. 
 
 ### 2. JKaufff In Ya Maufff (7-1)
 
