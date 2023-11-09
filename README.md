@@ -1,6 +1,4 @@
-# LAIC Week 8 Rankings
-
-By Eric 
+# LAIC Week 9 Rankings
 
 Deciding to keep this one analytical given the interesting and exciting playoff race we have going on. With that, let me just exhale for a moment and just get this one out of my system first....ahem....COOOOOOCCCCKKKKKK!!!!!!! Alright I'm good, I'm good.
 
