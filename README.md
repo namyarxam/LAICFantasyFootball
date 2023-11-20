@@ -1,4 +1,4 @@
-# LAIC Week 9 Rankings
+# LAIC Week 10 Rankings
 
 ## Rankings
 
