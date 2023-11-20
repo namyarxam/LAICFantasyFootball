@@ -1,55 +1,103 @@
 # LAIC Week 9 Rankings
 
-Deciding to keep this one analytical given the interesting and exciting playoff race we have going on. With that, let me just exhale for a moment and just get this one out of my system first....ahem....COOOOOOCCCCKKKKKK!!!!!!! Alright I'm good, I'm good.
-
 ## Rankings
 
-### 1. Jkauff in Ya Mauf
+### 1. Lancaster Barnstormers
 
-A rough week last week scoring less than 100 points, but CMC and Aiyuk were on bye. As we look ahead to this week, Jkauff has the Booch with Hurts on bye. As I analyze the bench of this team, there isn't much depth, which was exposed this past week. The TE spot is weak too. However, the starters are strong which is what really matters once we get to the fantasy playoffs. RB room is top in the league and WRs are strong. Hopkins's value is the highest it's been all season as he's healthy and has a QB willing to throw the deep ball. Devon Achane will be making a return soon but will the Dolphins offense keep up its historic pace with difficult matchups upcoming? I see regression coming. Overall the first place standing is well deserved and makes sense. Definitely will be a difficult out in the playoffs.
+Not sure what a barnstormer is, but I don’t really understand anything that goes on in
+Daniel’s head. Gotta respect his squad though, it’s got a lot of talent. King henry
+needs to step it up, he’s coming off a 3 point week but it looks like Tennessee is
+tanking so not optimistic. Keep doing what you’re doing Daniel – never change
 
-### 2. The Booch
+### 2. Jkauf
 
-5 game winning streak, hottest team in the league. Can he keep it up against Jkauff this week without Tyreek Hill? I think Jkauff has a little too much firepower and will get the W, but the Booch has amassed a team of high ceiling players so an upset is a real possibility. Will Levis has a great chance at a big week this week with the Bucs D looking pretty soft against the Texans last week, another team with a big arm QB. Just have to hope the passes don't go to DHop. I like James Cook and Kincaid this week against Denver at home in a bounce back game for the Bills. Looking ahead, this team is likely playoff bound and has the arsenal to compete with a locked in RB1, best WR in the game, and high upside surrounding pieces in Fields/Levis, Kincaid, Javonte, and Tank who can break off big plays at any moment.
+Dude is the laughing stock of the league for years, has a decent season, and thinks
+he’s the shit. With big dick Jalen at the helm, and mccaffrey as the lead back, this
+team can’t go wrong. Jordan probably has Geno smith on his bench because he
+misses him on the Jets
 
-### 3. Lancaster Barnstormers
+### 3. Hickory Crawdads
 
-Another team that has been gaining steam lately, currently on a 2 game winning streak and putting up massive point totals in the process. The RBs are second best in the league, led by Henry and Swift. Henry has been a little down this year, but once the calendar flips to to December, we all know he turns into an Abominable Snowman. Dak and Ceedee are also on fire right now, looking the best they have all season. I expect Dallas's pass attack to cool off over the next few weeks as they try to get their run game going and ride their defense in easy match ups, but they are set up well in the playoffs again as they face good offenses. Amari Cooper and Watson have great chemistry dating back to last season so Cooper is a pretty solid WR2 as long as Watsons shoulder is good. DJ Moore should start eating again with Fields back soon. Nacua has been down but the bye week will help tremendously and I think the Rams get back on track soon. Overall, this team is ready for the playoffs and has the best chance of beating Jkauff if it gets hot at the right time. I'd rank this team #2 if the Booch weren't on a 5 game winning streak and he wasn't so damn sexy ;).
+What the fuck is a crawdad? Why? Herbert the Pervert is streaky as hell. This team
+deserves better, just kidding. This teams rbs are legit trash. Im not sure why I rated
+this team so highly. They score a lot of points so maybe it will continue? Is it too late
+to change the ranking?
 
-### 4. Max Jones Rayman
+### 4. Yuddies and Tuddies
 
-Huge win last week against me to beat another team fighting for a playoff spot. Tough matchup this week against Lancaster, but I think this team gets the W. Burrow looks like himself again with an impressive performance against the Bills last week and set up nicely this week against the Texans in a likely shootout game. People in this league think you lost your trades but I think you won them. Trading Walker and Barkley for Chase and Diontae and flipping Pittman and Gus for Aaron Jones were sharp moves. Walker is having a good season but we are seeing him get less touches in recent weeks and ceding more work to Charbonnet. The Seahawks also have a very difficult schedule for runningbacks so Walker is likely more of a low end RB1 / high end RB2 rest of season. Barkley is on a terrible offense and his team has a bad defense. Being down in games will cap Barkley's upside, he has a bye in week 13, and a tough fantasy playoff schedule. Meanwhile, you enhance your teams ceiling by pairing Burrow with Chase AND you got Diontae Johnson, a PPR machine that will always have a solid floor. Getting Aaron Jones also makes a lot of sense. He has a great fantasy playoffs schedule, is pretty healthy, and the packers have really been struggling without him at 100% on the field. No doubt they are going to get him going. Even if he doesn't pan out he has huge upside so it's worth the gamble. Gus Edwards has benefitted mightily from touchdown luck. He will definitely regress back to low end RB2 / high end RB3 range once the TDs go back down and the TEs and Lamar start taking them away. Plus Keaton Mitchell is coming off a big week and is likely to take work away going forward. And you also have Mostert so Gus would be sitting anyway. Trading away Michael Pittman is a loss and but every week one of Pittman, Diontae, or Ridley would have been benched. With the playoffs nearing, now is the time to upgrade and consolidate. With the moves this team has made, I can see it being championship bound. Holy shit I just realized I wrote a lot. Cock? Whoops, my bad. I LOVE YOU RJ!
+This is a nice team. Mahomes is such a beast I hate him ugh why can’t he just not be
+so good. He’s like steph curry don’t ya just wanna smack him around a little bit?
+Bang his wife and steal his car? This teams rbs might be worse than the crawdads,
+but their wrs are thicker
 
-### 5. Hickory Crawdads
+### 5. Whos Peta Weba
 
-Hopefully y'all don't think I'm being too biased here, but I think my team is upper mid, despite being in eighth place and on a 2 game losing streak. Things have been shitty lately, especially last week. Fuck you Basshole I'm done with you. On with the analysis... Herbert has been down recently with tough matchups against KC and the Jets, but a shootout against Detroit this week and Green Bay's piss poor defense the week after should help out. Rhamondre is finally finding his stride with a light schedule upcoming. Ford has a tough couple of weeks and a cake schedule after. He is going to be very valuable in the late season. Diggs is a locked in top 3 WR. Nico Collins is a high upside play every week being attached to Stroud with their shit run game. Kelce is still jacked as long as Tswift shows up to the games, and Drake London and Rashee Rice should be decent going forward. Also look for JSN to make an impact late in the season for a banged up Seahawks team. Overall I think I can sneak into the playoffs but don't have high expectations once I get there.
+I actually think this is kinda the best team in the league, but they’re under 500 so can’t
+put em much higher. Power rankings are about Power. Stroud is setting rookie
+records, mixon barkley and walker are one of the top RB cores, and evans thielen
+and mclaurin are bluechips themselves. Pull it together and get a few wins – if this
+team makes the playoffs they’ll be scary.
 
-### 6. Punta Gorda Tight Ends
+### 6. Donnie Wahlberg
 
-Similar to Lancaster, this team is on a 2 game winning streak with very strong performances. Being led by Josh Allen and AJ Brown gives this team a chance to win every week. As we look at the surrounding pieces, Tony Pollard is the one who stands out the most. Can he turn things around and live up to his draft price? The schedule is set up beautifully for him over the next 3 weeks so I see him getting hot, propelling this team to more victories in the coming weeks. Rashod White is also on fire and I expect that to continue. Baker has always enjoyed throwing underneath routes to his running backs and the Tampa Bay offensive line stinks so I expect that to continue. The Bucs also have a nice schedule for the rest of the season. Andrews is having a decent season and is a nice safety blanket to have every week. The WR2 and flexes are the big weak spots of this team but it's clear this team has the potential to score big points every week and should remain competitive in the playoff race.
+Look this is my team – and it kinda sucks these days. I’m in rough shape, after losing
+chubb and Kyren Williams I’m not sure if I can recover. I want to make the playoffs so
+bad. I am asking you this. Maybe don’t beat this team so much. Maybe I’ll sneak a
+few more wins here and there and get into play off. Would be a fun ride haha. I’m
+starting Royce freeman this week. I didn’t know he was still in the league earlier this
+season. I’ve been busy at work so not trolling the waiver wire like mac you know. It’s
+ok anythings possible.
 
-### 7. Who's Peta Weba?
+### 7. The Booch
 
-Last week this team scored huge, just under 150 points. Big win to stay in the playoff race. As I look behind the numbers of that, 41 points came from CJ Stroud and Cole Kmet, which is evidence they can explode on any given week but I don't know how sustainable that really is. The running backs are stacked with Mixon, Barkley, and Walker. All are low end RB1 to high end RB2s. Mixon I think is in the best position to succeed since the bengals offense and defense is looking great right now. This means more scoring opportunities and running out the clock once they are up a lot and riding out the defense. The WR depth is also great but what it's missing is an elite one. All of them are mid WR2s that do very occasionally have the ability to pop off for big weeks. This team is solid across the board but doesn't have the upside other teams ranked higher have. I see this team narrowly missing the final playoff spot when it's all said and done.
+More like The Bitch. Tank and Tyreke are jacked but this team overall is pretty mid.
+Better than the giants though. The giants should just only draft lineman, it’s the only
+thing that matters. I could probably complete a 4 th and inches ramming into Jason
+Kelces ass. Looking forward to welcoming UCLA to the big 10 so another one of my
+teams can smack yours on the regular.
 
-### 8. Brushing Vinnie the Gooch's Teeth
+### 8. Punta Gorda Tight Ends
 
-Love the name. It's hilarious even though nobody understands it. For the one person who does, it will always be a mystery how his brain works. What a downturn this team has taken. Sub 100 points in back to back weeks, this team is falling fast. Injuries have piled up this season and the team is way too running back heavy, which limits upside in a PPR league. In the first few weeks of the season, the lack of WR depth didn't matter with Keenan Allen and Davante Adams popping off for massive weeks. Now that they have cooled off, particularly Davante, it's hard to see where the scoring will come from every week. Kyren Williams is on IR and won't be back until Week 12 at the earliest, ouch. The QB play from Lawrence hasn't been good this season from a fantasy perspective as he fails to throw touchdowns. Dallas Goedert is also hurt now. I do like Mattison a lot rest of season and think the Vikings will surprise people despite Cousins being done for the season. I see the losing streak continuing. Can this team hold on and stop the bleeding to earn a playoff spot? I don't think so.
+Bruce – you joined a fantasy football league with a bunch of gimps, and lets just say,
+you fit right in. Why are you starting quentin Johnston, there’s a handful of guys on
+the waivers that are better than him. Your bench is even worse. Why do you even have a bench? Are you actually ever going to play some of those guys? You think
+the panthers are just waiting to unleash Jonathan Mingo? Maybe next year my man,
+but probably not.
 
-### 9. The Junkyard Salami Branches
+### 9. Mac Jones Rayman
 
-The season started off well for young salami, but has been a struggle in recent weeks. Currently on a 2 game losing streak with subpar point totals in the process. He has a tough matchup this week too against Punta Gorda. Lamar Jackson and Josh Jacobs are a very solid foundation. The RB2 spot is very weak and the WRs are decent at best. Cooper Kupp will determine the fate of this team. Can he return to the top of the league? After the bye, I think the Rams will come out strong and I do expect him to immediately return to form. Will it last the rest of season though with his lingering hamstring injury? I don't think so but we shall see. This team is on the outside looking in until further notice.
+Mac, Mac, Mac. The worlds greatest commissioner yea yea thanks beast. I’m glad
+you do it, the league would fall apart if Leddy had to do it. The giaints are so bad I
+wish the eagles played them every week. Since there is no rule about stealing pro
+team signs, Michigan would probably beat the giants too. With Burrow out for the
+season, this team might actually need to pick up Mac Jones because Stafford is
+pretty ass. Aaron Jones dead now too. Good luck – maybe next year (Is this the
+Knicks motto?).
 
-### 10. Team Fish
+### 10. The Junkyard Salami Branches
 
-This team has had a strong roster all season, but injuries and holdouts have been setting this team back. That along with poor play from WRs and the huge bust that is Christian Watson. I like the trade of Aaron Jones for Pittman and Gus for you as much as I said I liked it for Max. You needed a productive WR and got it with Pittman. Nice win last week and a solid point total. Can this team keep it up? A lot of upside here with Ekeler, JT, and Higgins as well. Can this team make a late push? I do think it can and will but it'll be too little too late in the end.
+In the heart of the bustling deli aisle, there stood Mr. Salami, a meat unlike any other.
+Its cylindrical allure drew me in, and as I approached, the savory aroma enveloped
+me like a warm embrace. Mr. salami, your team’s hearty girth commands attention,
+but your prevalence to go limp this season has been concerning. What the hell
+happened to coopa cup? I think he needs a change of pace and scenery, like the rest
+of your team.
 
-### 11. Yuddies and Tuddies
+### 11. Team Fish
 
-This team came out hot earlier this season but has fizzled out. The loss of Justin Jefferson has been difficult and now this Vikings centric team no longer has its starting quarterback for the rest of the season. Devonta Smith has been a big letdown, and it is clear he's the odd man out of the offense. With Goedert hurt I expect things to get better for him, but not until after the bye this week. The running backs are also very weak and DMont has been battling injuries. I think there is too much to overcome here and the losing will continue.
+Hey Z, I’m playing you this week so I really hope you lose. You got players with
+pretty big boners, but just can’t seem to close. A bit too familiar for you. How bout
+you trade me ekeler and I’ll call up Cheddar and you can give her a ride on the disco
+stick? Fine, farmer and cheddar at the same time? I’ll see if either of em have a
+younger sister. Side note – nice job drafting Courtland Sutton in the 9 th round, pretty
+good value!
 
 ### 12. Bijan Mustardson
 
-Things haven't gone as planned this season, but I respect the risk taking as it will pay off eventually. Bijan has been a bust considering where he was drafted. So has Gibbs and so has Jaylen Waddle. I don't see these guys turning it around although Gibbs has looked good lately since he's had the opportunity finally. Losing JK Dobbins in week 1 also just fucking sucks. This isn't Bijan's season but the draft strategy is one that will lead to success in future seasons.
+Imagine looking at all your group chats, realizing that the most degenerate incoherent
+nonsense you’ve ever seen is your fantasy football thread, and then remembering
+you’re the worst team in that league. You just got to shake your head, and move on
+with life I guess. It doesn’t really matter that much, it’s just fantasy football. At least
+you don’t have to deal with these fuckheads in real life. Take that as a win.
 
 
